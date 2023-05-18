@@ -1,13 +1,13 @@
-### Etudes
+#### Etudes
 
 Chalier 2
 
-### Solos
+#### Solos
 
 Keep working on Haydn
 Polish Intrada
 
-### Fundementals
+#### Fundementals
 
 Keep working on TT
 Work on summer plan
