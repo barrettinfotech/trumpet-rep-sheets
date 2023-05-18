@@ -1,3 +1,5 @@
+## Studio Schedule Week of May 15th
+
 | time | Monday | Wednesday | Friday |
 | ---- | ------ | --------- | ------ | 
 | 7am  |        |           | Warmup in 202 |
