@@ -44,7 +44,7 @@ Sachse, [*100 Studies*](https://www.dropbox.com/s/m8prssj7y8p6ljy/Sachse%20100%2
   
 **Ear Training:** Compound intervals; seventh chords in root position (mi7, maj7, dom7, dim7, half dim7, min/maj7) using the [Online Ear Trainer](https://ww.iwasdoingallright.com/tools/ear_training/online/)  
   
-**Proficiencies**: prepare from this [packet](https://www.dropbox.com/s/p09gl1isdyaugl5/Proficiencies%20%28CSU%29.pdf?dl=0), according to the grade level (and semester) you re on.  
+**Proficiencies**: prepare from this [packet](https://www.dropbox.com/s/p09gl1isdyaugl5/Proficiencies%20%28CSU%29.pdf?dl=0), according to the grade level (and semester) you are on.  
   
 ### Technical Literature  
 **Band excerpts:**  
@@ -52,7 +52,7 @@ Baron, [*The Broadway Trumpeter*](https://www.dropbox.com/s/1j6zjkrbf0w87qi/Baro
 Daugherty, [*Bells for Stokowski*](https://www.dropbox.com/s/elg2zlasjctp8sc/Daugherty%2C%20Bells%20for%20Stokowski%20excerpts.pdf?dl=0)  
 \_\_\_\_\_\_\_, [*Niagra Falls*](https://www.dropbox.com/s/9l10cufq9858o4i/Daugherty%2C%20Niagra%20Falls%20excerpts.pdf?dl=0)  
 Finney, [*Summer in Valley City*](https://www.dropbox.com/s/3zu79spzy7kisjq/Finney%2C%20Summer%20in%20Valley%20City%20excerpts.pdf?dl=0)  
-Gandolfini, [*Vientos y Tangos*](https://www.dropbox.com/s/5dy566986zkzaon/Gandolfini%2C%20Vientos%20y%20Tangos%20excerpts.pdf?dl=0)*  
+Gandolfini, [*Vientos y Tangos*](https://www.dropbox.com/s/5dy566986zkzaon/Gandolfini%2C%20Vientos%20y%20Tangos%20excerpts.pdf?dl=0)  
 Graham, [*Harrison's Dream*](https://www.dropbox.com/s/ozljhyssot9gnbo/Graham%2C%20Harrison%27s%20Dream%20excerpts.pdf?dl=0)  
 Grantham, [*Southern Harmony: The Soldier's Return*](https://www.dropbox.com/s/qx6aoikqxeur81o/Grantham%2C%20Southern%20Harmony%20excerpt.pdf?dl=0)  
 Hansen, [*Valdres*](https://www.dropbox.com/s/j1jpe58y4ihn518/Navy%20trumpet%20audition%202020.pdf?dl=0)  
@@ -77,7 +77,7 @@ McGregor, [*Orchestral Literature Studies, vol. 3*](https://www.dropbox.com/s/ub
 Adams, [*Doctor Atomic Symphony*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Barber, [*Violin Concerto*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Britten, [*Young Person's Guide to the Orchestra*](https://www.dropbox.com/s/5mbd56293fr36ib/Britten%2C%20Young%20Person%27s%20Guide%20to%20the%20Orchestra%20tandem%20xcerpts%20HME.pdf?dl=0) (tandem)  
-Beethoven, [*Symphony No. 9*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/pm1neh25bmejjqc/Beethoven%2C%20Symphony%20No.%209%20excerpts%20tandem%20HME.pdf?dl=0))\_  
+Beethoven, [*Symphony No. 9*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/pm1neh25bmejjqc/Beethoven%2C%20Symphony%20No.%209%20excerpts%20tandem%20HME.pdf?dl=0)  
 Berlioz, [*Roman Carnival Overture*](https://www.dropbox.com/s/ji23lacrex7sndl/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%204%20IMC.pdf?dl=0)  
 Brahms, [*Symphony No. 2*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/8fpu5286towjo2o/Brahms%2C%20Symphony%20No.%202%20excerpts%20tandem%20HME.pdf?dl=0))  
 Bruckner, [*Symphony No. 4*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/e1j4svucpoteir7/Bruckner%2C%20Symphony%20No.%204%20excerpts%20tandem%20HME.pdf?dl=0))  
@@ -100,7 +100,7 @@ Mahler, [*Blumine*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20O
 \_\_\_\_\_\_, [*Symphony No. 3*, VI](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) (chorale) (all, [tandem]https://www.dropbox.com/s/a3h3kb0et0s7w4i/Mahler%2C%20Symphony%20No.%203%20excerpts%20tandem%20HME.pdf?dl=0))  
 \_\_\_\_\_\_, [*Symphony No. 4*](https://www.dropbox.com/s/m4ssb2ntiamcmvi/Mahler%2C%20Symphony%20No.%204%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 \_\_\_\_\_\_, [*Symphony No. 9*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/1ptfpl9ihdqrn2y/Mahler%2C%20Symphony%20No.%209%20excerpts%20tandem%20HME.pdf?dl=0))  
-\*Mussorgsky, [*Pictures at an Exhibition* (Goldenberg and Schmuyle\--piccolo)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%0text%29.pdf?dl=0)  
+Mussorgsky, [*Pictures at an Exhibition* (Goldenberg and Schmuyle\--piccolo)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%0text%29.pdf?dl=0)  
 (all Pictures [tandem](https://www.dropbox.com/s/i7eaxxlcdhyx964/Mussorgsky%2C%20Pictures%20at%20an%20Exhibition%20HME%20tandem.pdf?dl=0))  
 Mussorgsky, [*Night on Bald Mountain*](https://www.dropbox.com/s/huy4h9rmhrppmx3/Mussorgsky%2C%20A%20Night%20on%20Bald%20Mountain%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 Prokofiev, [*Peter and the Wolf*](https://www.dropbox.com/s/yqjfgqdly7moqx2/Prokofiev%2C%20Peter%20and%20the%20Wolf%20excerpts%20HME.pdf?dl=0)  
@@ -159,9 +159,9 @@ Rimsky-Korsakov (Campos), [*Flight of the Bumblebee*](https://www.dropbox.com/s/
 Cooman, *Little Poppet*  
 \_\_\_\_\_\_\_, *Solstice Prelude*  
 †Dunker, *Advanced Solos* (6 pieces that can be performed separately: Distant Voices, Hush, Improvisation on Raga Asavari, Prelude Doina, Chet, Satchmo)  
-††Hailstork, [*Variations for Trumpet*](https://www.dropbox.com/s/c75ae2lt076x1nw/Hailstork%2C%20Variations%20for%20Trumpet%20clean%20copy.pdf?dl=0)  
-\*Ketting, [*Intrada*](https://www.dropbox.com/s/prlx8zrqc2cp6r9/Ketting%20Intrada.pdf?dl=0)  
-\*Vizzutti, [*Cascades*](https://www.dropbox.com/s/401mxssmft8n95u/Vizzutti%20-%20Cascades.pdf?dl=0)  
+†Hailstork, [*Variations for Trumpet*](https://www.dropbox.com/s/c75ae2lt076x1nw/Hailstork%2C%20Variations%20for%20Trumpet%20clean%20copy.pdf?dl=0)  
+Ketting, [*Intrada*](https://www.dropbox.com/s/prlx8zrqc2cp6r9/Ketting%20Intrada.pdf?dl=0)  
+Vizzutti, [*Cascades*](https://www.dropbox.com/s/401mxssmft8n95u/Vizzutti%20-%20Cascades.pdf?dl=0)  
   
 **Baroque pieces**  
 **Transcriptions:**  
@@ -171,7 +171,7 @@ Marcello, *Concerto in c minor*
 Schutz, [*4 Canzonas for trumpet and organ*](https://www.dropbox.com/s/9lvflklfit8sftl/Schutz%2C%20Vier%20Canzonen%20tpt%20org.pdf?dl=0)  
 Tartini, [*Concerto in D*](https://www.dropbox.com/s/y4izy277ympiut0/Tartini-Concerto%20en%20Re%20majeur.pdf?dl=0)  
   
-**Original Pieces for Baroque Trumpet (playable on piccolo---or C, D, or G trumpets):**  
+**Original Pieces for Baroque Trumpet (playable on piccolo, C, D, or G trumpets):**  
 Anon., [*Sinfonia con due trombe*](https://www.dropbox.com/s/vhcg4trqs69ivc7/Anonymous%2C%20Sinfonia%20con%20due%20trombe%20Bbtpts.pdf?dl=0) (Bolognese school; only Bb parts in his edition; possibly playable with organ but should have strings)  
 Anon., [*Sinfonia a 2*](https://www.dropbox.com/s/f7sif3ko34c5390/Anonymous%2C%20Sinfonia%20a%202%20Trombe%20Dtpt%20pf.pdf?dl=0) (also Bolognese school)  
 Anon., [*Three Fanfares for Two Trumpets*](https://www.dropbox.com/s/6p47kdbx73xd2te/Anon%2C%20Three%20Fanfares%20for%20Two%20Trumpets%20%28Rocky%20theme%29.pdf?dl=0) (Rocky heme)  
@@ -204,7 +204,7 @@ Torelli, [*Sinfonia in D*](https://www.dropbox.com/s/1ulm3oqdxdfcd9l/high%20trum
 Vejvanovsky, [*Three Dances for 2 trumpets*](https://www.dropbox.com/s/f2r7htln9m7pcz2/Vejvanovsky%2C%20Three%20Dances%20for%202%20Trumpets.pdf?dl=0)  
 Vivaldi, [*Concerto No. 2 for 2 trumpets in D*](https://www.dropbox.com/s/bsq2jjkja8bwq2n/Vivaldi%2C%20Concerto%20for%20Two%20Trumpets%20in%20D.pdf?dl=0)  
   
-**19^th^ Century/Romantic Trumpet Literature:**  
+**19<sup>th</sup> Century/Romantic Trumpet Literature:**  
 Hendrickson, ed., [*The Singing Trumpet*](https://www.dropbox.com/s/twmmjts3ex31zl6/Hendrickson%2C%20The%20Singing%20Trumpet%20score.pdf?dl=0) (actual songs from Schubert, trauss, Mahler, Vaughan Williams, Puccini, Brahms)  
 Saint-Saens, [*Fantaisie in Eb*](https://www.dropbox.com/s/c2k023n7w4xw1tf/Saint-Saens%2C%20Fantasy-in-Eb-Major.pdf?dl=0)  
 Skryabin, Smedvig, ed., [*Etude*](https://www.dropbox.com/s/2ul8p7ld46c97f0/Skyrabin%2C%20Etude%20tpt%20pf.pdf?dl=0)  
@@ -234,7 +234,7 @@ Thomson, V, *At the Beach*
 Turrin, [*Caprice*](https://www.dropbox.com/s/q6tsljbg99qd3xm/Turrin%20-%20Caprice.pdf?dl=0)  
 Windsor, [*Alpine echoes*](https://www.dropbox.com/s/v4dkzneefn34hf9/Windsor%2C%20Alpine%20Echoes%20cornet%20solo%20with%20brass%20band.pdf?dl=0) (echo cornet with brass band; ot sure about pf)  
   
-**Short 20^th^-c. and 21^st^-c. pieces:**  
+**Short 20<sup>th</sup>-c. and 21<sup>st</sup>-c. pieces:**  
 Albeniz, *Mallorca Barcarola*  
 Arutunian, *Theme and Variations*  
 Balay, [*Prelude et Ballade*](https://www.dropbox.com/s/3uzxdtckvu6e22e/Balay%2C%20Prelude%20and%20Ballade.pdf?dl=0)  
@@ -266,7 +266,7 @@ McKee, *From the Deep* (2tpt, organ)
 †Nishimura, [*Golden Trees*](https://www.dropbox.com/s/usplj0san1f2hs9/Winds%20of%20Change%20%28diversify%20the%20stand%29%20tpt.pdf?dl=0)  
 Mozart (Thilde or Stafford), [*Rondo alla Turka* (Eb for Stafford arr.)](https://www.dropbox.com/s/6rl2qjw6qeomcu3/Mozart%20%28Stafford%29%2C%20Rondo%20alla%20turca%20Bb%20and%0Eb%20tpt%20parts%20and%20score.pdf?dl=0)  
 Pannequin, [*Morceau de Concert*](https://www.dropbox.com/s/z97po6twlucpgrf/Pannequin%2C%20Morceau%20de%20concert%20Bb%20cornet%20pf.pdf?dl=0)  
-\*Persichetti, [*The Hollow Men*](https://www.dropbox.com/s/zq6m8ris5rlznnf/Persichetti%20Hollow%20Men%20tpt.pdf?dl=0)  
+Persichetti, [*The Hollow Men*](https://www.dropbox.com/s/zq6m8ris5rlznnf/Persichetti%20Hollow%20Men%20tpt.pdf?dl=0)  
 Pascal, [*Capriccio*](https://www.dropbox.com/s/a29u620zxjcybtn/Pascal%2C%20Capriccio%20tpt%20pf.pdf?dl=0)  
 Scriabin (Hudson), *Etude 11*  
 Shakhov, *Scherzo*  
