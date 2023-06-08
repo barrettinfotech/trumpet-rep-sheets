@@ -15,7 +15,7 @@ White, *World's Method*, [vol. 2](https://www.dropbox.com/s/1t0le9f41ayxzwn/Whit
 Tabakov, [*Progressive Trumpet Tutor vol. 2*](https://www.dropbox.com/s/uc4r7woyshzg1f3/Tabakov%2C%20Progressive-Trumpet-Tutor-Vol.2.pdf?dl=0)  
   
 **Fundamentals:**  
-Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (1^st^ 6 forms)  
+Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (forms 1-6)  
 Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0)* (First Study, review Second Study)  
 Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0)* (major scales, first form, up to 2 accidentals)  
 Curtis, [*Articulation speed practice chart*](https://www.dropbox.com/s/sbs7jlyy9733apf/Curtis%2C%20Articulation%20speed%20practice%20chart%202.pdf?dl=0)  
