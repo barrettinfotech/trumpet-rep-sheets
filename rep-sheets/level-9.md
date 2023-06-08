@@ -16,10 +16,10 @@ Tabakov, [*Progressive Trumpet Tutor vol. 2*](https://www.dropbox.com/s/uc4r7woy
   
 **Fundamentals:**  
 Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (forms 1-6)  
-Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0)* (First Study, review Second Study)  
-Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0)* (major scales, first form, up to 2 accidentals)  
+Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) (First Study, review Second Study)  
+Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0) (major scales, first form, up to 2 accidentals)  
 Curtis, [*Articulation speed practice chart*](https://www.dropbox.com/s/sbs7jlyy9733apf/Curtis%2C%20Articulation%20speed%20practice%20chart%202.pdf?dl=0)  
-Bai Lin, *[Lip Flexibilities](https://www.dropbox.com/s/awzhm0aoek4dk66/Bai%20Lin%20Lip%20Flexibility.pdf?dl=0)* (II and III)  
+Bai Lin, *[Lip Flexibilities](https://www.dropbox.com/s/awzhm0aoek4dk66/Bai%20Lin%20Lip%20Flexibility.pdf?dl=0) (II and III)  
 Goldman, [*Daily Embouchure Studies*](https://www.dropbox.com/s/vzn0l3sjx22xf1h/Goldman%2C%20EF.%2C%20Daily-Embouchure-Studies.pdf?dl=0)  
 Ponzo, [*Embouchure Stabilization Patterns*](https://www.dropbox.com/s/h6z66jopcilfbno/Ponzo%2C%20Embouchure-Stabilization-Patterns.pdf?dl=0)  
 Schlossberg, [*Daily Drills and Technical Studies for Trumpet*](https://www.dropbox.com/s/vhowp1kseb458n0/Schlossberg%20Daily%20Drills%20and%20technical%20studies%20for%20trumpet.pdf?dl=0) (Long Note Drills)  
@@ -34,7 +34,7 @@ Willey, [*Jazz Improv Materials Handbook Complete*](https://www.dropbox.com/s/v9
   
 **Etudes**  
 Alphonse, *Nouvelles Études*, [Book 2](https://www.dropbox.com/s/tmqeflgxad4bm71/Alphonse%2C%20Nouvelles%20Etudes%20book%202%20easy.pdf?dl=0)  
-Bordogni, [*24 Vocalises*](https://www.dropbox.com/s/18iqdls6c5f4b1x/Bordogni%2C%2024-Vocalises-Trumpet-and-Piano.pdf?dl=0);* nos. 6-10  
+Bordogni, [*24 Vocalises*](https://www.dropbox.com/s/18iqdls6c5f4b1x/Bordogni%2C%2024-Vocalises-Trumpet-and-Piano.pdf?dl=0); nos. 6-10  
 Blazhevitch, [*70 Studies*](https://www.dropbox.com/s/exozodqy0i4gbzi/Blazhevitch%2C%2070%20Studies.pdf?dl=0)  
 Chumov, [*24 Etudes for Trumpet*](https://www.dropbox.com/s/09a1vramc345q33/Chumov%2C%2024-Etudes-for-Trumpet.pdf?dl=0) (all major and minor keys)  
 Concone, [*Vocalises*](https://www.dropbox.com/s/ulcihu21nmzur3t/Concone%2C%20Complete%20Solfeggi%20tpt.pdf?dl=0)  
@@ -89,7 +89,7 @@ Ravel, [*Daphnis et Chloe*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%2
 Respighi, [*Pines of Rome*, offstage solo](https://www.dropbox.com/s/idhbef2899en7ks/Respighi%2C%20Pines%20Offstage.pdf?dl=0)  
 Rimsky-Korsakov, [*Capriccio Espagnol*](https://www.dropbox.com/s/5z1a2svkvyaqt3y/Rimsky%20Korakov%20Capriccio%20Espagnol.pdf?dl=0) ([tandem](https://www.dropbox.com/s/cj49j7koi4ihl9q/Rismky-Korsakov%2C%20Capriccio%20Espagnol%20excerpts%20tandem%20HME.pdf?dl=0))  
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_, [*Grand Russian Easter*](https://www.dropbox.com/s/yqd3mkfiwn91mcb/Rismky-Korsakov%2C%20Grand%20Russian%20Easter%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
-Schumann, [*Symphony No. 2*](https://www.dropbox.com/s/2plb5lf09q1o00j/Schumann%20Symphony-2.pdf?dl=0)* (rotary preferred)([tandem](https://www.dropbox.com/s/pflobvvzlbibg2l/Schumann%2C%20Symphony%20No.%202%20excerpt%20tandem%20HME.pdf?dl=0))  
+Schumann, [*Symphony No. 2*](https://www.dropbox.com/s/2plb5lf09q1o00j/Schumann%20Symphony-2.pdf?dl=0) (rotary preferred)([tandem](https://www.dropbox.com/s/pflobvvzlbibg2l/Schumann%2C%20Symphony%20No.%202%20excerpt%20tandem%20HME.pdf?dl=0))  
 Shostakovich, [*Concerto for Piano, Trumpet and Strings* (II and IV, reh 63)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Strauss, [*Symphonia Domestica* (tpt 3)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Stravinsky, [*Song of the Nightingale* (reh. 22, 68, 96)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
@@ -97,7 +97,7 @@ Wagner, [*Gotterdammerung*, Act III, Scene 2, reh. 38](https://www.dropbox.com/s
   
 **Selection of jazz solos to transcribe:**  
 Louis Armstrong, [*Potato Head Blues*](https://youtu.be/gzqC1jDWygg) (from beginning, try the breaks later on, too)  
-Blue Mitchell, [*Blowin' the Blues Away*](https://youtu.be/9aOpQMpcybQ?t=67)* (tempo is fast)  
+Blue Mitchell, [*Blowin' the Blues Away*](https://youtu.be/9aOpQMpcybQ?t=67) (tempo is fast)  
 \_\_\_\_\_\_\_\_\_\_\_, [*When the Saints Go Marching In*](https://youtu.be/e5s6sopdLCE?t=19) (pick 2-3 choruses)  
 \_\_\_\_\_\_\_\_\_\_\_, [*Sweet Pumpkin*](https://youtu.be/yrfldEWi5G4?t=150)  
 Bobby Hackett, [*Wolverine Blues*](https://youtu.be/WcWEtQH5ml4?t=13)  
