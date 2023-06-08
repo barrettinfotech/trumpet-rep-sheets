@@ -51,7 +51,7 @@ Stegmann, [*The Orchestra Trumpeter*](https://www.dropbox.com/s/4wuvmogyhkiu30w/
 
 **Proficiencies**: prepare from this [packet](https://www.dropbox.com/s/p09gl1isdyaugl5/Proficiencies%20%28CSU%29.pdf?dl=0), according to the grade level (and semester) you are on.  
 
-### Technical Studies
+### Technical Literature
 **Band excerpts:**  
 Bassett, [*Designs, Images, and Textures*](https://www.dropbox.com/s/on6ci10psteuze2/Bassett%2C%20Designs%2C%20Images%2C%20and%20Textures%20excerpts.pdf?dl=0)  
 Barber, [*Commando March*](https://www.dropbox.com/s/j1jpe58y4ihn518/Navy%20trumpet%20audition%202020.pdf?dl=0)  
