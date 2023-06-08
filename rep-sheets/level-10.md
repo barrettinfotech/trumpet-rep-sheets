@@ -293,5 +293,5 @@ Stanley, arr. Snell, *Trumpet Tune*
 Verdi, arr. Allen, *Triumphal March from Aida*  
   
 **Mixed Chamber:**  
-Cooman, *Yellow I* (tpt, tbn, pf)
-\_\_\_\_\_\_\_, *Sourdough Serenade* (tpt, percussion)
+Cooman, *Yellow I* (tpt, tbn, pf)  
+\_\_\_\_\_\_\_, *Sourdough Serenade* (tpt, percussion)  
