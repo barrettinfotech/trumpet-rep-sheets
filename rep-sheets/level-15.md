@@ -22,7 +22,7 @@ Concone, [*Vocalises*](https://www.dropbox.com/s/ulcihu21nmzur3t/Concone%2C%20Co
 Sachse, [*100 Studies*](https://www.dropbox.com/s/m8prssj7y8p6ljy/Sachse%20100%20Studies.pdf?dl=0), nos. 86-end  
 Broiles, [*50 Transpositions for Orchestral Trumpet*](https://www.dropbox.com/s/xcawt7gvp2oojwa/Broiles%2C%2050%20Transpositions%20for%20Orchestral%20Trumpet.pdf?dl=0)  
   
-**Ear Training:** All 7^th^ and 9^th^ chords in 1^st^ and 2^nd^ inversions using the [Online Ear Trainer](https://www.iwasdoingallright.com/tools/ear_training/online/)  
+**Ear Training:** All 7th and 9th chords in 1st and 2nd inversions using the [Online Ear Trainer](https://www.iwasdoingallright.com/tools/ear_training/online/)  
   
 **Scales: All modes of the ascending melodic minor scale**  
   
@@ -30,6 +30,7 @@ Broiles, [*50 Transpositions for Orchestral Trumpet*](https://www.dropbox.com/s/
 **Band excerpts:**  
 Maslanka, [*Symphony No. 2*](https://www.dropbox.com/s/rtdzgevgo6gij2m/Maslanka%2C%20Symphony%20No.%202%20excerpts.pdf?dl=0)  
 \_\_\_\_\_\_\_\_, [*Symphony No. 4*](https://www.dropbox.com/s/xvaqzhs0nl5zwgw/Maslanka%2C%20Symphony%20No.%204%20excerpts.pdf?dl=0)  
+
 **Orchestral excerpts:**  
 Adams, [*City Noir*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Adams, [*The Wound Dresser*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
