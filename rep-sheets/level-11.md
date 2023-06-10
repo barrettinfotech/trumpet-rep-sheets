@@ -5,10 +5,10 @@ Tabakov, [*Progressive Trumpet Tutor, Vol 4*](https://www.dropbox.com/s/xl8jqmna
 
 **Fundamentals**:  
 Barrie, [*Daily Routines*](https://www.dropbox.com/s/zyo8sckadw9szuz/Barrie%2C%20Daily%20Routines.pdf?dl=0) (8 different routines with progressive options)  
-Cichowicz*, [Long Tone Studies](https://www.dropbox.com/s/4svl5bhshnksjhv/Cichowicz-Flow-Studies.pdf?dl=0)* (Second group of long tones)  
-Gordon, *[Systematic Approach to Daily Practice](https://www.dropbox.com/s/sxgjogb0l2imk7i/Gordon%20Systematic.pdf?dl=0)* (weeks 14-26)  
-\*Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) (Fourth Study, review first three studies)  
-\*Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0) (major scales, second form, all keys)  
+Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/4svl5bhshnksjhv/Cichowicz-Flow-Studies.pdf?dl=0)* (Second group of long tones)  
+Gordon, [*Systematic Approach to Daily Practice*](https://www.dropbox.com/s/sxgjogb0l2imk7i/Gordon%20Systematic.pdf?dl=0) (weeks 14-26)  
+Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) (Fourth Study, review first three studies)  
+Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0) (major scales, second form, all keys)  
 C. Colin, [*Advanced Lip Flexibilities*](https://www.dropbox.com/s/ht0jwp93mliqucw/Colin%20-%20Trumpet%20Advanced%20Lip%20Flexibilities.pdf?dl=0) (vol. 2)  
 Curtis, [*Lip Flexibilities*](https://www.dropbox.com/s/mqmxa0p6gl6rkkb/Stan%27s%20lip%20flexibilities%20forms%201-10.pdf?dl=0)  
 Curtis, [Articulation speed practice chart](https://www.dropbox.com/s/sbs7jlyy9733apf/Curtis%2C%20Articulation%20speed%20practice%20chart%202.pdf?dl=0)  
@@ -18,7 +18,7 @@ Rudolf, [*Scale Exercises for Trumpet*](https://www.dropbox.com/s/nu3t2e0lgznrni
 Ponzo, [*Embouchure Stabilization Patterns*](https://www.dropbox.com/s/h6z66jopcilfbno/Ponzo%2C%20Embouchure-Stabilization-Patterns.pdf?dl=0)  
 Ponzo, [*Set Up Drills and Patterns for Embouchure Development*](https://www.dropbox.com/s/2al09405arqh7w4/Ponzo%2C%20Set-Up-Drills-and-Patterns-for-Embouchure-Development.pdf?dl=0)  
 Schlossberg, [*Daily Drills and Technical Studies for Trumpet*](https://www.dropbox.com/s/vhowp1kseb458n0/Schlossberg%20Daily%20Drills%20and%20technical%20studies%20for%20trumpet.pdf?dl=0) (Lip Drills and Chord Drills)  
-R. Shuebruk, *[The Complete Shuebruk Lip Trainers for Trumpet](https://www.dropbox.com/s/nzrqs5gqpzm3xi2/Shuebruk%20Lip%20Trainers.pdf?dl=0)* (grade 2)  
+R. Shuebruk, [*The Complete Shuebruk Lip Trainers for Trumpet*](https://www.dropbox.com/s/nzrqs5gqpzm3xi2/Shuebruk%20Lip%20Trainers.pdf?dl=0) (grade 2)  
 \_\_\_\_\_\_\_\_\_\_, *[The Complete Shuebruk Tongue Trainers for Trump](https://www.dropbox.com/s/xq0phz8uk8huoj2/Shuebruk%20Tongue%20trainers.pdf?dl=0)* (grade 2)  
 Stamp, [*Warm-ups and Studies*](https://www.dropbox.com/s/57ssi3yygtxywtu/James%20Stamp%20-%20Trumpet%20method.pdf?dl=0) (Basic Warm-ups, p. 5)  
 Weiner, [*How to Play J. Stamp’s Warmups*](https://www.dropbox.com/s/qaqk0y6yowz8hy2/Wiener%2C%20How%20to%20Play%20J.%20Stamp%27s%20Warmups.pdf?dl=0)  
@@ -29,19 +29,19 @@ Alphonse, [*Nouvelles Études*, Book 4](https://www.dropbox.com/s/7pnnk1m15qxu27
 Arban, [*14 Characteristic Studies*](https://www.dropbox.com/s/shoomxtpkke27pa/Arban%20Method%20283-347.pdf?dl=0) (8-14)  
 Bach/Gisondi, [*Bach for Trumpet*](https://www.dropbox.com/s/la9vdzb1at6otoy/Gisondi%2C%20Bach_For_Trumpet.pdf?dl=0) (nos. 3, 4, 5, 9)  
 Berdiev, [*26 Studies*](https://www.dropbox.com/s/942nx2cfbadd1q0/Berdiev%2C%2026-Studies-for-Trumpet.pdf?dl=0)  
-Böhme, *[24 Melodic Exercises in all major and minor keys](https://www.dropbox.com/s/vm5vm9gz9hgoa7c/Bohme%2C%2024-Melodic-Studies.pdf?dl=0)* (up to 3 accidentals)  
-Bousquet, *[36 Celebrated Studies](https://www.dropbox.com/s/vp0pb0g53qgh5eu/Bousquet%2036%20Celebrated%20Studies.pdf?dl=0)* (13-24)  
-\*Brandt, *[Orchestral Etudes](https://www.dropbox.com/s/4011jjqjgq2rkgn/Brandt%20Orchestral%20and%20Last%20etudes.pdf?dl=0)* (15-33)  
+Böhme, [*24 Melodic Exercises in all major and minor keys*](https://www.dropbox.com/s/vm5vm9gz9hgoa7c/Bohme%2C%2024-Melodic-Studies.pdf?dl=0) (up to 3 accidentals)  
+Bousquet, [*36 Celebrated Studies*](https://www.dropbox.com/s/vp0pb0g53qgh5eu/Bousquet%2036%20Celebrated%20Studies.pdf?dl=0) (13-24)  
+Brandt, [*Orchestral Etudes*](https://www.dropbox.com/s/4011jjqjgq2rkgn/Brandt%20Orchestral%20and%20Last%20etudes.pdf?dl=0) (15-33)  
 Chelokov, [*Etudes*](https://www.dropbox.com/s/ugnkli0uyuaf944/Chelokov%2C%20Etudes%20for%20Trumpet.pdf?dl=0)  
 Gattermann, [*Classical Studies*](https://www.dropbox.com/s/7co814tt30fx8ir/Gattermann%2C%20Classical-Studies.pdf?dl=0)  
 Vannetelbosch, [*20 Melodic and Technical Studies*](https://www.dropbox.com/s/38fs3yxbjcdu49q/Vannetelbosch%2C%20Vingt%20%C3%89tudes.pdf?dl=0) (10-20)  
 Wurm, [*62 Selected Studies* (selections from 32-62](https://www.dropbox.com/s/ic537znr47bf4qk/Wurm%2C%2062-Selected-Studies-for-Trumpet-2.pdf?dl=0))  
 
 **Lyrical studies:**  
-\*Bordogni, *[24 Vocalises](https://www.dropbox.com/s/18iqdls6c5f4b1x/Bordogni%2C%2024-Vocalises-Trumpet-and-Piano.pdf?dl=0); nos. 16-19*  
+Bordogni, [*24 Vocalises*](https://www.dropbox.com/s/18iqdls6c5f4b1x/Bordogni%2C%2024-Vocalises-Trumpet-and-Piano.pdf?dl=0); nos. 16-19  
 Concone, [*Vocalises*](https://www.dropbox.com/s/ulcihu21nmzur3t/Concone%2C%20Complete%20Solfeggi%20tpt.pdf?dl=0)  
-\*Collins, [*In the Singing Style*](https://www.dropbox.com/s/uf3cii66z3upmmp/Collins%2C%20In%20the%20Singing%20Style.pdf?dl=0) (selections from p. 12-22)  
-\*Snedecor, [*Lyrical Etudes*](https://www.dropbox.com/s/ohy3t54f67s1790/Snedecor%2C%20lyrical%20etudes.pdf?dl=0) (XI-XX)  
+Collins, [*In the Singing Style*](https://www.dropbox.com/s/uf3cii66z3upmmp/Collins%2C%20In%20the%20Singing%20Style.pdf?dl=0) (selections from p. 12-22)  
+Snedecor, [*Lyrical Etudes*](https://www.dropbox.com/s/ohy3t54f67s1790/Snedecor%2C%20lyrical%20etudes.pdf?dl=0) (XI-XX)  
 
 **Transposition:**  
 Liesering, [*Method of Transposition*](https://www.dropbox.com/s/9hztuzcm3yaog95/Liesering%2C%20Method-of-Transposition.pdf?dl=0) (p. 62-end)  
@@ -56,7 +56,7 @@ Stegmann, [*The Orchestra Trumpeter*](https://www.dropbox.com/s/4wuvmogyhkiu30w/
 Bassett, [*Designs, Images, and Textures*](https://www.dropbox.com/s/on6ci10psteuze2/Bassett%2C%20Designs%2C%20Images%2C%20and%20Textures%20excerpts.pdf?dl=0)  
 Barber, [*Commando March*](https://www.dropbox.com/s/j1jpe58y4ihn518/Navy%20trumpet%20audition%202020.pdf?dl=0)  
 Corigliano, [*Gazebo Dances*](https://www.dropbox.com/s/lr26o3samznuipp/Corigliano%2C%20Gazebo%20Dances%20excerpts.pdf?dl=0)  
-De Meij, *[Symphony No. 1](https://www.dropbox.com/s/ta14o8l8md91rhf/De%20Meij%2C%20Symphony%20No.%201%20excerpts.pdf?dl=0)* (Lord of the Rings music)  
+De Meij, [*Symphony No. 1*](https://www.dropbox.com/s/ta14o8l8md91rhf/De%20Meij%2C%20Symphony%20No.%201%20excerpts.pdf?dl=0) (Lord of the Rings music)  
 Gillingham, [*Apocalyptic Dreams*](https://www.dropbox.com/s/9l3mtzthgxia8a4/Gillingham%2C%20Apocalyptic%20Dreams%20excerpts.pdf?dl=0)  
 \_\_\_\_\_\_\_\_\_, [*Heroes Lost and Fallen*](https://www.dropbox.com/s/736n3s1vcxllczt/Gillingham%2C%20Heroes%20Lost%20and%20Fallen.pdf?dl=0)  
 Lindroth, [*Spin Cycle*](https://www.dropbox.com/s/pyq54x85nyihoox/Lindroth%2C%20Spin%20Cycle%20excerpts.pdf?dl=0)  
@@ -69,7 +69,7 @@ Toch, [*Spiel für Blasorchester*](https://www.dropbox.com/s/r7qtc35pn381dvv/Toc
 Welcher, [*Circular Marches*](https://www.dropbox.com/s/1ywfejqn13fskn1/Welcher%2C%20Circular%20Marches%20excerpts.pdf?dl=0)  
 
 **Orchestral excerpts**:  
-**McGregor**: [*Orchestral Lit Studies vol. 2*](https://www.dropbox.com/s/gj2hzseueiyy0uq/McGregor%2C%20Orchestral%20Literature%20Studies%20vol%202.pdf?dl=0)  
+McGregor: [*Orchestral Lit Studies vol. 2*](https://www.dropbox.com/s/gj2hzseueiyy0uq/McGregor%2C%20Orchestral%20Literature%20Studies%20vol%202.pdf?dl=0)  
 Berlioz, [*Symphonie Fantastique*](https://www.dropbox.com/s/2w0jsytcclubj1d/Berlioz%20Symphonie%20Fantastique.pdf?dl=0) (trumpet and cornet—also look at the special “Bal” solo)  
 Berlioz, [*Roman Carnival Overture*](https://www.dropbox.com/s/za2p4ysgvarusl0/Berlioz%2C%20Roman%20Carnival%20Overture%20excerpts%20tandem%20HME.pdf?dl=0)  
 Debussy[, *Fêtes: Nocturnes*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://www.dropbox.com/s/28x7u25yp786j4l/Debussy%2C%20Nocturnes%20excerpts%20tandem%20HME.pdf?dl=0))  
@@ -151,7 +151,7 @@ Weldon, Steele-Perkins, arr., [*Suite from “The Judgement of Paris”*](https:
 
 **19<sup>th</sup> Century/Romantic Trumpet Literature:**  
 Anon., [*Thema and Variations*](https://www.dropbox.com/s/xa8ut0f8s5k9odn/Anon%2C%20Kehrhahn%2C%20Thema%20and%20Variations%20Eb%20cor%2C%20pf.pdf?dl=0) (Eb cornet—or Eb tpt)  
-Code, *[Caprice “Zelda”](https://www.dropbox.com/s/zet4cv2cd6qj3s2/Code%2C%20Zelda%20solo%20cornet%20and%20pf%20score.pdf?dl=0)* (20<sup>th</sup> C, but Romantic in style)  
+Code, [*Caprice “Zelda”*](https://www.dropbox.com/s/zet4cv2cd6qj3s2/Code%2C%20Zelda%20solo%20cornet%20and%20pf%20score.pdf?dl=0) (20<sup>th</sup> C, but Romantic in style)  
 Luigini, [*Caprice*](https://www.dropbox.com/s/l0qozq9px0asbmp/Luigini%2C%20Caprice%20cornet%20pf.pdf?dl=0)  
 Senee, *Concertino*  
 
@@ -169,10 +169,10 @@ Clarke, [*The Muskateer*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20
 Hoch, [*Mother’s Heart*](https://www.dropbox.com/s/yil52vo1b2mhrf0/Hoch%2C%20Mothers%20Heart-echo%20Cornet%20solo.pdf?dl=0) (for echo cornet)  
 Irons, [*Song of the Pines*](https://www.dropbox.com/s/a7rx9n7ffqs14g1/Irons%2C%20Song%20of%20the%20Pines%20tpt%20pf.pdf?dl=0)  
 Liberati, [*Canzona Neopolitana*](https://www.dropbox.com/s/9unxxwjgotd5x8v/Liberati%2C%20Canzona%20Napolitana%20solo%20and%20piano%20copy.pdf?dl=0)  
-Various, [The Cornetists Folio](https://www.dropbox.com/s/tz98brqy9ee6dri/Various%2C%20The-Cornetists-Folio-Score%20cornet.pdf?dl=0) (lots of cornets solos by different composers)  
+Various, [*The Cornetists Folio*](https://www.dropbox.com/s/tz98brqy9ee6dri/Various%2C%20The-Cornetists-Folio-Score%20cornet.pdf?dl=0) (lots of cornets solos by different composers)  
 
 **Short 20<sup>th</sup>-c. and 21<sup>st</sup>-c. pieces:**  
-Absil, [Contes](https://www.dropbox.com/s/y3prk0v71ugy406/Absil%20Contes.pdf?dl=0)  
+Absil, [*Contes*](https://www.dropbox.com/s/y3prk0v71ugy406/Absil%20Contes.pdf?dl=0)  
 Alary, [*Morceau de concours*](https://www.dropbox.com/s/sboay1bobd9tbxp/Alary%20-%20Morceau%20de%20Concours.pdf?dl=0)  
 Balay, [*Piece de concours*](https://www.dropbox.com/s/eu3vd481j9he9m4/Balay%2C%20Piece-de-Concours-Trumpet-and-Piano.pdf?dl=0)  
 Bizet (Mendez), *Habeñero*  
@@ -181,7 +181,7 @@ Bozza, [*Badinage*](https://www.dropbox.com/s/0pj87g67x7wxwu7/Bozza%20-%20Badina
 Broughton, [*Oliver’s Birthday*](https://www.dropbox.com/s/4ox6h5ko1kkt2k5/Broughton%2C%20Oliver%27s%20Birthday.pdf?dl=0)  
 Cooman, [*Spring Songs*](https://www.dropbox.com/s/ad9pbnbcaodujky/Cooman%2C%20spring_songs%2C%20tpt%20piano.pdf?dl=0)  
 \_\_\_\_\_, *Three Intermezzi*  
-\_\_\_\_\_, *[A Song for Ab and Pooh](https://www.dropbox.com/s/a6g8988k4aairy6/Cooman%2C%20A%20%20Song%20for%20Ab%20and%20Pooh.pdf?dl=0)* (with opt. improvisation)  
+\_\_\_\_\_, [*A Song for Ab and Pooh*](https://www.dropbox.com/s/a6g8988k4aairy6/Cooman%2C%20A%20%20Song%20for%20Ab%20and%20Pooh.pdf?dl=0) (with opt. improvisation)  
 \_\_\_\_\_\_, [*Suite Antique*](https://www.dropbox.com/s/aoubnyu0nppyo2z/Cooman%2C%20Suite%20Antique%2C%20tpt%20and%20harpsichord.pdf?dl=0) (with harpsichord, in 440 or 415)  
 Cowell, [*Triad*](https://www.dropbox.com/s/0yghvqwp12nt8kn/Cowell%2C%20Triad-HC.-568.pdf?dl=0) (for Bb tpt, but C or Eb would be easier)  
 †Gillie, [*Song for the Lost*](https://www.dropbox.com/s/usplj0san1f2hs9/Winds%20of%20Change%20%28diversify%20the%20stand%29%20tpt.pdf?dl=0)  
@@ -198,7 +198,7 @@ Semenoff, [*The Tender Sonia*](https://www.dropbox.com/s/3nfbbaufz2xg06h/Semenof
 Starer, *Invocation*  
 
 **Concertos:**  
-Haydn, *[Concerto in E-flat](https://www.dropbox.com/s/qlpxk06l7uzmo4z/Haydn%20Tarr%20edition%20B-flat%20solo.pdf?dl=0) for Bb tpt; [same for Eb](https://www.dropbox.com/s/z3fs6ws9v66koua/Haydn%20Tarr%20universal%20edition%20Tpt.pdf?dl=0)*  
+Haydn, [*Concerto in E-flat*](https://www.dropbox.com/s/qlpxk06l7uzmo4z/Haydn%20Tarr%20edition%20B-flat%20solo.pdf?dl=0) for Bb tpt; [same for Eb](https://www.dropbox.com/s/z3fs6ws9v66koua/Haydn%20Tarr%20universal%20edition%20Tpt.pdf?dl=0)  
 Neruda, [*Concerto in E-flat*](https://www.dropbox.com/s/x49c806ecsebvgx/Neruda%20Concerto%20for%20B-flat%20and%20C%20tpt.pdf?dl=0) (originally for horn)  
 Riisager, [*Concertino*](https://www.dropbox.com/s/84yby26e0i62xb5/Riisager%20-%20Concertino%20tpt%20Bb.pdf?dl=0)  
 
@@ -218,7 +218,7 @@ Dowland, Singleton, arr., *Two Dances*
 Farnaby/Howarth, *Fancies, Toyes, and Dreams*  
 Gabrieli, *Canzonas 1-4*  
 Holborne, *Complete Music for Brass*  
-Horovitz*, Music Hall Suite*  
+Horovitz, *Music Hall Suite*  
 Jones, *Four Movements for Five Brass*  
 Mouret, *Rondeau*  
 Martini, *Toccata*  
