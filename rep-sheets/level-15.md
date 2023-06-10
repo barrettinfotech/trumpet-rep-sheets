@@ -34,7 +34,7 @@ Maslanka, [*Symphony No. 2*](https://www.dropbox.com/s/rtdzgevgo6gij2m/Maslanka%
 Adams, [*City Noir*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Adams, [*The Wound Dresser*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Bach, *Brandenburg Concerto No. 2* ([B-flat part](https://www.dropbox.com/s/fkqsb244cabo6w4/Bach%2C%20Brandenburg%20Concerto%20No.%202%20in%20Bb%20excerpts%20HME.pdf?dl=0)) ([F part](https://www.dropbox.com/s/1pafdtz2xdax9y6/Bach%2C%20Brandenburg%20Concerto%20No.%202%20in%20F%20excerpts%20HME.pdf?dl=0))  
-Mahler, [*Symphony No. 8*](https://www.dropbox.com/s/05ycgvorcemyy3g/Sachs%2C%20Mahler%20Symph%20Works%2C%20vol%203%20IMC.pdf?dl=0) ([tandem](https://www.dropbox.com/s/0eerjcvtmf4i4oa/Mahler%2C%20Symphony%20No.%208%20excerpts%20tandem%20HME.pdf?dl=0))**  
+Mahler, [*Symphony No. 8*](https://www.dropbox.com/s/05ycgvorcemyy3g/Sachs%2C%20Mahler%20Symph%20Works%2C%20vol%203%20IMC.pdf?dl=0) ([tandem](https://www.dropbox.com/s/0eerjcvtmf4i4oa/Mahler%2C%20Symphony%20No.%208%20excerpts%20tandem%20HME.pdf?dl=0))  
 Schoenberg[*, Variationen für Orchester*](https://www.dropbox.com/s/gpodml9wyhg7amd/Schoenberg%2C%20Variationen%20fur%20Orchester%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 *Have top excerpts on practice rotation or be working on an audition*  
   
