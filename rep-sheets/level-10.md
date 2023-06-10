@@ -160,7 +160,7 @@ Purcell, [*Sonata in D*](https://www.dropbox.com/s/7bqbk1fa3ve5awz/Purcell%2C%20
 Telemann, [*Air de Trompette*](https://www.dropbox.com/s/n4r5yh16kn095jb/Telemann%2C%20Air%20de%20Trompette%20part%20and%20score.pdf?dl=0)  
 Torelli, [*Sonata in D*](https://www.dropbox.com/s/5vg7qqozs0ivmpy/Torelli_Sonata%20in%20D%20%22etienne%20roger%22%20TrumpetinD.pdf?dl=0) (the so-called "Etienne Roger," sometimes called "Concerto"  )
   
-**19^th^ Century/Romantic Trumpet Literature:**  
+**19<sup>th</sup> Century/Romantic Trumpet Literature:**  
 George, [*Legend de Lamor*](https://www.dropbox.com/s/dfxigiwa88rqrbw/Georges%2C%20Legende-de-Larmor.pdf?dl=0)  
 Hue, [*Solo de concert*](https://www.dropbox.com/s/fbwnnn4f622su61/Hue%2C%201er-Solo-de-Cornet-a-Pistons.pdf?dl=0) (same as "*1er Solo de Cornet a Pistons"*)  
 Kail, [*Variations in F*](https://www.dropbox.com/s/tw40130kdg0eeu8/Weber%2C%20Variations%20in%20F%20tpt%20pf.pdf?dl=0)  
@@ -177,7 +177,7 @@ Hoch, [various evocative cornet solos](https://www.dropbox.com/s/mqnvaw1pt1bxyd5
 Ligner, [*Theme Suisse*](https://www.dropbox.com/s/q1sryz6u73f9sbo/Ligner%2C%20Th%C3%AAme_suisse%20echo%20cornet%20pf.pdf?dl=0) (for echo cornet)  
 Puccini (Sparke), [*Three Puccini Arias*](https://www.dropbox.com/s/433qll07tnawko4/Sparke%2C%20Three%20Puccini%20Arias%20cor%20pf.pdf?dl=0)  
   
-**Short 20^th^-c. and 21^st^-c. pieces:**  
+**Short 20<sup>th</sup>-c. and 21<sup>st</sup>-c. pieces:**  
 Ameller, *Belle Province, [Trois Rivieres]*(https://www.dropbox.com/s/w100wfsp743xql2/Ameller%2C%20Belle%20Province-Trois-Rivi%C3%A8res%20tpt%20Bb%20or%20C%2C%20pf.pdf?dl=0)  
 Ameller, [*In the glow of Sunset*](https://www.dropbox.com/s/7fg4z4mcbr8vg71/Ameller%2C%20In%20the%20glow%20of%20Sunset%20tpt%20pf.pdf?dl=0) (tpt in C)  
 Balay, [*Petite Piece Concertante*](https://www.dropbox.com/s/leon7sifw1gdo2c/Balay%20-%20Petite%20Piece%20Concertante.pdf?dl=0)  
