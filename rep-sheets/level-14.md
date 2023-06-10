@@ -85,7 +85,6 @@ Woody Shaw, [*The Moontrane*](https://youtu.be/QNLLFmGL6y0) (Woody is first solo
 **Jazz Tunes to learn:** "Green Dolphin Street" and "Night in Tunisia"  
   
 **Other Jazz Materials:**  
-  
 Veldkamp, [*20 Swinging Range Studies Advanced plus*](https://www.dropbox.com/s/8qv8n9kah46ih4y/Veldkamp%2C%2020-Swinging-Range-Studies-Advanced-Plus.pdf?dl=0)  
   
 ### Solos  
