@@ -167,8 +167,8 @@ Arban, [*Carnival of Venice*](https://www.dropbox.com/s/shoomxtpkke27pa/Arban%20
 Bellstedt, [*Fantasia No. 1*](https://www.dropbox.com/s/okhnfrsn91xufsr/bellstedt%20Fantasie%20No.1.pdf?dl=0)  
 \_\_\_\_\_\_\_, [*Student's Sweetheart*](https://www.dropbox.com/s/fjsbm7mq3afnany/bellstedt%20the%20student%27s%20sweethart.pdf?dl=0)  
 Clarke, [*Carnival of Venice*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
-\*\_\_\_\_\_, [*From the Shores of the Mighty Pacific*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
-\*\_\_\_\_\_, [*The Debutante*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
+\_\_\_\_\_, [*From the Shores of the Mighty Pacific*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
+\_\_\_\_\_, [*The Debutante*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
 \_\_\_\_\_, [*The Southern Cross*](https://www.dropbox.com/s/19vg60blp7itz3k/Clarke%2C%20The%20HLC%20Collection%20cornet%20pf.pdf?dl=0)  
 Dinicu, [*Hora Staccato*](https://www.dropbox.com/s/q59npj1xn0z58ll/Dinicu%2C%20Hora%20Staccato%20tpt%20Bb%20C%20pf.pdf?dl=0)  
 Levy, *Carnival of Venice*  
