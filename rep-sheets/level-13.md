@@ -217,7 +217,7 @@ Beethoven (Berdiev), [Sonatine](https://www.dropbox.com/s/gj15ofywikuf8dv/Beetho
 Dello Joio, [*Sonata*](https://www.dropbox.com/s/brrpj4wytqw59ij/Dello%20Joio%20-%20Sonata%20complete%20trumpet%20part.pdf?dl=0)  
 Ewazen, [*Sonata*](https://www.dropbox.com/s/e1vshqafwa961tl/Ewazen%20Sonata.pdf?dl=0)  
 Platanov, *Sonata*  
-\*Stevens, [*Sonata*](https://www.dropbox.com/s/52356htbcgyan5o/Halsey%20Stevens%20Sonata.pdf?dl=0)  
+Stevens, [*Sonata*](https://www.dropbox.com/s/52356htbcgyan5o/Halsey%20Stevens%20Sonata.pdf?dl=0)  
   
 ### Chamber Music  
 **Selected Chamber Brass at appropriate level:**  
