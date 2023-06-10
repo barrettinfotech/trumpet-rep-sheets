@@ -25,13 +25,13 @@ Smith, [*Top Tones for the Trumpeter*](https://www.dropbox.com/s/a2ws9fnt83eyvrc
 Tomasi, [*Six Etudes*](https://www.dropbox.com/s/dm74jfgit07pq0y/Six%20Etudes%20-%20Henri%20Tomasi.pdf?dl=0) (4-6)  
   
 **Lyrical studies:**  
-Bordogni (Porret*), [*24 Vocalises*](https://www.dropbox.com/s/0bkbion2jxy6ho7/Bordogni%2024%20Vocalises%20%28transposing%29.pdf?dl=0) (transposing; 13-24)  
+Bordogni (Porret), [*24 Vocalises*](https://www.dropbox.com/s/0bkbion2jxy6ho7/Bordogni%2024%20Vocalises%20%28transposing%29.pdf?dl=0) (transposing; 13-24)  
 Concone, [*Vocalises*](https://www.dropbox.com/s/ulcihu21nmzur3t/Concone%2C%20Complete%20Solfeggi%20tpt.pdf?dl=0)  
   
 **Transposition:**  
 Sachse, [*100 Studies*](https://www.dropbox.com/s/m8prssj7y8p6ljy/Sachse%20100%20Studies.pdf?dl=0), 58-85
   
-**Ear Training:** Dominant 7^th^ Chords---sus4, b5, #5 and 1^st^ inversions of other 7^th^ chords using the [Online Ear Trainer](https://www.iwasdoingallright.com/tools/ear_training/online/)
+**Ear Training:** Dominant 7th Chords-sus4, b5, #5 and 1st inversions of other 7th chords using the [Online Ear Trainer](https://www.iwasdoingallright.com/tools/ear_training/online/)
   
 **Proficiencies:** follow [this worksheet](https://www.dropbox.com/s/p09gl1isdyaugl5/Proficiencies%20%28LSU%29.pdf?dl=0) for your grade level at CSU.  
   
@@ -68,7 +68,7 @@ Stravinsky, [*Rite of Spring*](https://www.dropbox.com/s/6fcw0tog48fysn7/Stravin
 \_\_\_\_\_\_\_\_, [*Pulcinella Suite*](https://www.dropbox.com/s/jytlh185krssxuq/Stravinsky%2C%20Pulcinella%20Suite%20HME.pdf?dl=0)  
 Wagner, [*Parsival Vorspiel*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Webern, [*6 Stucke fur Orchester*](https://www.dropbox.com/s/1520j7kqms0zjwf/Webern%2C%206%20Stucke%20fur%20Orchester%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
-Williams, [*Summon the Heroes*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)* (in C---up one step from band version)  
+Williams, [*Summon the Heroes*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) (in C---up one step from band version)  
   
 **Selection of jazz solos to transcribe:**  
 Randy Brecker, [*On Green Dolphin Street*](https://youtu.be/iSWRGleZ5Es) (the first tune on this recording)  
