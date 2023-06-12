@@ -17,7 +17,7 @@ Tabakov, [*Progressive Trumpet Tutor, Vol 1*](https://www.dropbox.com/s/julfkwdv
 
 **Fundamentals:**  
 [Bai Lin, *Lip Flexibilities*](https://www.dropbox.com/s/awzhm0aoek4dk66/Bai%20Lin%20Lip%20Flexibility.pdf?dl=0) *(I and II)*  
-[Cichowicz, *Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (1^st^ 2 forms)  
+[Cichowicz, *Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (1<sup>st</sup> 2 forms)  
 [Clarke, *Elementary Studies*](https://www.dropbox.com/s/32g81q4aorw41fr/Clarke%2C%20Elementary%20Studies.pdf?dl=0) (lessons 17 to 30)  
 [Clarke, *Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) *(Second Study)*  
 Curtis, [*Lip Flexibilities*, forms 1-10](https://www.dropbox.com/s/mqmxa0p6gl6rkkb/Stan%27s%20lip%20flexibilities%20forms%201-10.pdf?dl=0)  
@@ -63,7 +63,7 @@ Beethoven[, *Leonore No. 3*](https://www.dropbox.com/s/q2weil3zcaa4ja4/Beethoven
 \_\_\_\_\_\_\_\_\_\_, [*Leonore No. 2*](https://www.dropbox.com/s/2avb9r4luskv0zt/Beethoven%20Leonore%202.pdf?dl=0) call  
 Bizet, [*L'Arlesienne*](https://www.dropbox.com/s/9puh3bj17sl3684/Bizet%20L%27Arlesienne.pdf?dl=0)  
 Brahms, [*Symphony No. 1*](https://www.dropbox.com/s/lt8wfkvtc58kt9b/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%202%20IMC.pdf?dl=0)  
-Charbrier, *[España](https://www.dropbox.com/s/29ktfuxhcdhb58a/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%201%2C%20IMC.pdf?dl=0)* (mainly 3^rd^ tpt)  
+Charbrier, *[España](https://www.dropbox.com/s/29ktfuxhcdhb58a/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%201%2C%20IMC.pdf?dl=0)* (mainly 3<sup>rd</sup> tpt)  
 Mendelssohn, [*Overture to Fingal's Cave*](https://www.dropbox.com/s/29ktfuxhcdhb58a/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%201%2C%20IMC.pdf?dl=0)  
 Schubert, [*Symphony No. 9 (formerly No. 7)*](https://www.dropbox.com/s/29ktfuxhcdhb58a/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%201%2C%20IMC.pdf?dl=0)  
 Schumann, [*Symphony No. 1*](https://www.dropbox.com/s/qif7dzr2wwpsm2w/Schumann%20Symphony-1%28Spring%29.pdf?dl=0)  
@@ -135,7 +135,7 @@ Debussy, [*Mandolin*](https://www.dropbox.com/s/1cirkf6gz98gyk5/Debussy%20mandol
 \_\_\_\_\_\_\_, *Reverie* (from [Hudadoff, *15 Intermediate Solos*](https://www.dropbox.com/s/4zo38kkcfntbecf/Hudadoff-Igor%2C%2015-Intermediate-Trumpet-Solos.pdf?dl=0))  
 Nelhybel, [*Sonata da Chiesa No. 2*](https://www.dropbox.com/s/hu1vlsd3sta0jtq/Nelhybel%2C%20Sonata%20da%20Chiesa%20no.%202%2C%20tpt%20pf.pdf?dl=0)  
 Piazzolla, [*Oblivion*](https://www.dropbox.com/s/wh0th2hxyfk5brt/Piazzolla%2C%2025%20Tangos%20tpt%20pf.pdf?dl=0)  
-Porret, *28^e^ Solo de concours*  
+Porret, *28<sup>e</sup> Solo de concours*  
 Schroen, [*Heimkehr*](https://www.dropbox.com/s/npefzi3ydunosua/Schroen%2C%20Heimkehr--return%20home%2C%20solo%20cornet%20and%20pf.pdf?dl=0) ("Return Home")  
 \_\_\_\_\_\_\_, [*Ljubotschka*](https://www.dropbox.com/s/frvomzfiaig2ibs/Schroen%2C%20Ljubotschka%2C%20solo%20cornet%20and%20pf.pdf?dl=0)  
 Trad., Marlatt, arr., [*Three Traditional Spirituals*](https://www.dropbox.com/s/cbmo7wkphmuwzpk/Marlatt%2C%20Three%20Traditional%20Spirituals%20tpt%20pf.pdf?dl=0)  
