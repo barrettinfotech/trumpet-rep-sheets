@@ -16,10 +16,10 @@ White, *World's Method*, [vol 1](https://www.dropbox.com/s/vrxoa3jxr9o7z0x/White
 Tabakov, [*Progressive Trumpet Tutor, Vol 1*](https://www.dropbox.com/s/julfkwdv23g94cq/Tabakov%2C%20Progressive-Trumpet-Tutor-Vol.1.pdf?dl=0)  
 
 **Fundamentals:**  
-Bai Lin, *Lip Flexibilities*](https://www.dropbox.com/s/awzhm0aoek4dk66/Bai%20Lin%20Lip%20Flexibility.pdf?dl=0) *(I and II)*  
-Cichowicz, *Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (1^st^ 2 forms)  
-Clarke, *Elementary Studies*](https://www.dropbox.com/s/32g81q4aorw41fr/Clarke%2C%20Elementary%20Studies.pdf?dl=0) (lessons 17 to 30)  
-Clarke, *Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) *(Second Study)*  
+[Bai Lin, *Lip Flexibilities*](https://www.dropbox.com/s/awzhm0aoek4dk66/Bai%20Lin%20Lip%20Flexibility.pdf?dl=0) *(I and II)*  
+[Cichowicz, *Long Tone Studies*](https://www.dropbox.com/s/ypqfroksa2y3ytv/CichowiczFlowStudies.pdf?dl=0) (1^st^ 2 forms)  
+[Clarke, *Elementary Studies*](https://www.dropbox.com/s/32g81q4aorw41fr/Clarke%2C%20Elementary%20Studies.pdf?dl=0) (lessons 17 to 30)  
+[Clarke, *Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) *(Second Study)*  
 Curtis, [*Lip Flexibilities*, forms 1-10](https://www.dropbox.com/s/mqmxa0p6gl6rkkb/Stan%27s%20lip%20flexibilities%20forms%201-10.pdf?dl=0)  
 Goldman, [*Daily Embouchure Studies*](https://www.dropbox.com/s/vzn0l3sjx22xf1h/Goldman%2C%20EF.%2C%20Daily-Embouchure-Studies.pdf?dl=0)  
 Willey, [*Jazz Improv Materials Handbook Complete*](https://www.dropbox.com/s/v99394rlsd9fjr7/Willey%20Jazz%20Complete.pdf?dl=0), pp. 6-29  
