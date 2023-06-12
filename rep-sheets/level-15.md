@@ -4,7 +4,7 @@ Cichowicz, [Slur Exercises/Flow Studies](https://www.dropbox.com/s/4svl5bhshnksj
 Caruso, [*Sequel to Musical Calisthenics*](https://www.dropbox.com/s/io3zdw5dlfo1pwc/Caruso%2C%20Derasse%2C%20Sequel%20to%20Musical%20Calisthenics.pdf?dl=0)  
 Belk, [*Progressive Lip Flexibilities*](https://www.dropbox.com/s/7sz2tv13vc2ipuz/Belk%2C%20Progressive%20Lip%20Flexibilities.pdf?dl=0) (pp. 81-end)  
 Groth, [*Etudes on New Tonguing and Breathing Techniques*](https://www.dropbox.com/s/2s4xy5qbc0g169n/Groth%2C%20Etuden%20uber%20neue%20Zungenstob%20und%20Atem%20Techniken.pdf?dl=0)  
-Knevitt, [*Developing 21^st^ Century Range and Endurance*](https://www.dropbox.com/s/qym3sz7j7221sis/Knevitt%2C%20Developing-21st-Century-Range-and-Endurance-on-Trumpet.pdf?dl=0)  
+Knevitt, [*Developing 21<sup>st</sup> Century Range and Endurance*](https://www.dropbox.com/s/qym3sz7j7221sis/Knevitt%2C%20Developing-21st-Century-Range-and-Endurance-on-Trumpet.pdf?dl=0)  
 Sachs, [*Daily Fundamentals*](https://www.dropbox.com/s/uitood5nqkaulh1/Sachs%20Daily%20Fundamentals.pdf?dl=0) (Chapter 3)  
 Stamp, [*Supplemental Studies*](https://www.dropbox.com/s/y2c9ifylls2xuc6/Stamp%2C%20Supplemental%20Studies.pdf?dl=0)  
   
@@ -12,8 +12,8 @@ Stamp, [*Supplemental Studies*](https://www.dropbox.com/s/y2c9ifylls2xuc6/Stamp%
 Bach/Gisondi, [*Bach for Trumpet*](https://www.dropbox.com/s/la9vdzb1at6otoy/Gisondi%2C%20Bach_For_Trumpet.pdf?dl=0) (nos. 19, 21)  
 Charlier, [*Trente-six Études Transcendantes*](https://www.dropbox.com/s/btdtztjog1l50wh/Charlier%20-%2036%20Etudes%20for%20Trumpet.pdf?dl=0) (19-24)  
 Chavanne, [*25 Characteristic Studies*](https://www.dropbox.com/s/fxc0cjtftaddxww/Chavanne%2C%2025-Characteristic-Studies.pdf?dl=0) (13-25)  
-Plog, [1*6 Contemporary Studies for Trumpet*](https://www.dropbox.com/s/akqi8q9ldwu8486/Plog%2C%2016-Contemporary-Etudes-for-Trumpet.pdf?dl=0) (9-16)  
-Smith, [T*op Tones for the Trumpeter*](https://www.dropbox.com/s/a2ws9fnt83eyvrc/Smith-Toptones.pdf?dl=0) (nos. 21-end)  
+Plog, [*16 Contemporary Studies for Trumpet*](https://www.dropbox.com/s/akqi8q9ldwu8486/Plog%2C%2016-Contemporary-Etudes-for-Trumpet.pdf?dl=0) (9-16)  
+Smith, [*Top Tones for the Trumpeter*](https://www.dropbox.com/s/a2ws9fnt83eyvrc/Smith-Toptones.pdf?dl=0) (nos. 21-end)  
   
 **Lyrical studies:**  
 Concone, [*Vocalises*](https://www.dropbox.com/s/ulcihu21nmzur3t/Concone%2C%20Complete%20Solfeggi%20tpt.pdf?dl=0)  
