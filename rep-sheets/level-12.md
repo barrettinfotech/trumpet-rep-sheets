@@ -97,7 +97,7 @@ Hindemith, [*Mathis der Maler*](https://www.dropbox.com/s/okv3xeh75mhxmgu/Hindem
 Ives, [*Variations on America*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) (also tandem [here](ttps://www.dropbox.com/s/dj8ia6767qj7207/Ives%2C%20Variations%20on%20America%20excerpts%20tandem%20HME.pdf?dl=0))  
 Kodaly, [*Hary Janos*](https://www.dropbox.com/s/fyhuagms1z6brzo/Kodaly%2C%20Hary%20Janos%20-%20Suite%20excerpts%20tandem%20HME.pdf?dl=0) (tandem---3 tpts, 3 cornets)  
 Mahler, [*Blumine*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
-\_\_\_\_\_\_, [*Symphony No. 3*, VI](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) (chorale) (all, [tandem]https://www.dropbox.com/s/a3h3kb0et0s7w4i/Mahler%2C%20Symphony%20No.%203%20excerpts%20tandem%20HME.pdf?dl=0))  
+\_\_\_\_\_\_, [*Symphony No. 3*, VI](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) (chorale) (all, [tandem](https://www.dropbox.com/s/a3h3kb0et0s7w4i/Mahler%2C%20Symphony%20No.%203%20excerpts%20tandem%20HME.pdf?dl=0))  
 \_\_\_\_\_\_, [*Symphony No. 4*](https://www.dropbox.com/s/m4ssb2ntiamcmvi/Mahler%2C%20Symphony%20No.%204%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 \_\_\_\_\_\_, [*Symphony No. 9*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0) ([tandem](https://ww.dropbox.com/s/1ptfpl9ihdqrn2y/Mahler%2C%20Symphony%20No.%209%20excerpts%20tandem%20HME.pdf?dl=0))  
 Mussorgsky, [*Pictures at an Exhibition* (Goldenberg and Schmuyle\--piccolo)](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%0text%29.pdf?dl=0)  
@@ -228,7 +228,7 @@ Mendez, *Czardas*
 \_\_\_\_\_\_, *La Virgen de la Macarena*  
 Monti, *Czardas*  
 Rimsky-Korsakov (Hunsberger or other), [*Flight of the Bumblebee*](https://www.dropbox.com/s/vjekss2khtvejfr/Wynton%20-%20Carnaval%20-%20Trumpet.pdf?dl=0)  
-Rimsky-Korsakov (Davis), [*Flight of the Bumblebee*](https://www.dropbox.com/s/mt18v7fs8lhgvla/Rimsky-Korsakov%2C%20Davis%2C%20Flight%20of%20the%20Bumble%20Bee%20tpt%20pf.pdf?dl=0  
+Rimsky-Korsakov (Davis), [*Flight of the Bumblebee*](https://www.dropbox.com/s/mt18v7fs8lhgvla/Rimsky-Korsakov%2C%20Davis%2C%20Flight%20of%20the%20Bumble%20Bee%20tpt%20pf.pdf?dl=0)  
 Simon, *Willow Echoes*  
 Thomson, V, *At the Beach*  
 Turrin, [*Caprice*](https://www.dropbox.com/s/q6tsljbg99qd3xm/Turrin%20-%20Caprice.pdf?dl=0)  
