@@ -9,7 +9,7 @@ Tabakov, [*Progressive Trumpet Tutor vol. 3*](https://www.dropbox.com/s/nemh1gb7
     
 **Fundamentals**:    
 Barrie, [*Daily Routines*](https://www.dropbox.com/s/zyo8sckadw9szuz/Barrie%2C%20Daily%20Routines.pdf?dl=0) (8 different routines with progressive options)    
-Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/4svl5bhshnksjhv/Cichowicz-Flow-Studies.pdf?dl=0)* (1^st^ 10 forms)    
+Cichowicz, [*Long Tone Studies*](https://www.dropbox.com/s/4svl5bhshnksjhv/Cichowicz-Flow-Studies.pdf?dl=0)* (1<sup>st</sup> 10 forms)    
 Gordon, [*Systematic Approach to Daily Practice*](https://www.dropbox.com/s/sxgjogb0l2imk7i/Gordon%20Systematic.pdf?dl=0) (weeks 1-13)    
 Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) (Third Study, review first two studies)    
 Clarke, [*Setting Up Drills*](https://www.dropbox.com/s/3lqdc53sn09ku0k/Clarke%20Setting%20Up%20Drills.pdf?dl=0) (do major scales, first form, all keys)    
@@ -99,7 +99,7 @@ Shostakovich, [*Symphony No. 1*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs
 Sibelius, [*En Saga*](https://www.dropbox.com/s/23ufd2y82dyfs2p/Sibelius%2C%20En%20Saga%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 Sibelius, [*Finlandia*](https://www.dropbox.com/s/ff0fzj8jkpa01rt/Sibelius%2C%20Finlandia%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
 Sibelius, [*Symphony No. 5*](https://www.dropbox.com/s/w89evuzvbo555lp/Sibelius%2C%20Symphony%20No.%205%20excerpts%20tandem%20HME.pdf?dl=0)+ (tandem)  
-Strauss, [*Ein Heldenleben*](https://www.dropbox.com/s/pik3g5w77hq2yej/Strauss%20Ein%20Heldenleben.pdf?dl=0) (1^st^ Eb Trumpet solos)  
+Strauss, [*Ein Heldenleben*](https://www.dropbox.com/s/pik3g5w77hq2yej/Strauss%20Ein%20Heldenleben.pdf?dl=0) (1<sup>st</sup> Eb Trumpet solos)  
 Stravinsky, [*Song of the Nightingale*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0), reh 55  
 Tchaikovsky, [*Capriccio Italien*](https://www.dropbox.com/s/29ktfuxhcdhb58a/Bartold%2C%20Orchestral%20Excerpts%2C%20vol%201%2C%20IMC.pdf?dl=0) ([tandem](https://www.dropbox.com/s/9swqefuts0mtma4/Tchaikovsky%2C%20Capriccio%20Italien%2C%20Op.%2045%20excerpts%20tandem%20HME.pdf?dl=0))  
 \_\_\_\_\_\_\_\_\_\_, [*Danse Napolitaine*](https://www.dropbox.com/s/e1il24q4zeh6amb/Tchaikovsky%20Swan%20Lake.pdf?dl=0) (no. 7 from Swan Lake)  
