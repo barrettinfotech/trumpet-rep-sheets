@@ -156,9 +156,9 @@ Vejvanovsky, [*Sonata a g minor*](https://www.dropbox.com/s/tfiimd1tum8pohw/Vejv
   
 **19<sup>th</sup> Century/Romantic Trumpet Literature:**  
 Gliere, [*Concerto*, Op. 82](https://www.dropbox.com/s/agdr70l9qhohjj6/Gliere%2C%20Concerto_for_coloratura_soprano_op.%2082%2C%20solo%20tpt.pdf?dl=0)  
-Paisiello, Dignam, arr., [*Hope Told A Flatt'ring Tale*](https://www.dropbox.com/s/f5paynfdus4d4pv/Paisiello-Dignam%2C%20Hope%20Told%20A%20Flatt%27ring%20Tale%20score.pdf?dl=0)  
-Ponchielli, [*Concerto per Cornetto*](https://www.dropbox.com/s/ij1a03rshcgnyqz/Ponchielli%2C%20Concerto%20per%20Cornetto%20Bb%20pf.pdf?dl=0), Op. 198  
-Classical repertoire:  
+Paisiello, Dignam, arr., [*Hope Told A Flatt'ring Tale*](https://www.dropbox.com/s/f5paynfdus4d4pv/Paisiello-Dignam%2C%20Hope%20Told%20A%20Flatt%27ring%20Tale%20score.pdf?dl=0)  Ponchielli, [*Concerto per Cornetto*](https://www.dropbox.com/s/ij1a03rshcgnyqz/Ponchielli%2C%20Concerto%20per%20Cornetto%20Bb%20pf.pdf?dl=0), Op. 198  
+
+**Classical repertoire**:  
 Hummel, *Concerto in E:* [tpt in E](https://www.dropbox.com/s/vyqqf184iym8s39/Hummel%20Tpt%20in%20mi%20Univ%20ed.pdf?dl=0), [tpt in C](https://www.dropbox.com/s/jls1hbh42ke6wy0/Hummel%20Tpt%20in%20C%20%28to%20play%20in%20E%29%20Univ%20ed.pdf?dl=0), [tpt in Bb](https://www.dropbox.com/s/9qum05p3k6z3jib/Hummel%20Tpt%20in%20B-flat%20%28to%20play%20in%20E%29%20Univ%20ed.pdf?dl=0), [tpt in B nat](https://www.dropbox.com/s/cs2iddf14u80mhn/Hummel%20Tpt%20in%20B-nat%20%28to%20play%20in%20E%29%20Univ%20ed.pdf?dl=0), (or, more commonly, Eb)  
   
 **"Show stoppers," cornet or encore pieces**:  
