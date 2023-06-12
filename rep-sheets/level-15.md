@@ -157,7 +157,7 @@ Schuller, Gunther.*Music for Brass Quintet*
 Shostakovich, arr. Hyde, *String Quartet No. 3, First Movement*  
 Tilson Thomas, Michael.*Street Song*  
   
-**Trio (same list as level 14):**  
+**Trio:**  
 Gabaye, Pierre. *Recréation* (trio plus piano)  
 Plog, Anthony. *Triple Concerto* (trio plus piano or orchestra)  
 Plog, *Trio*  
