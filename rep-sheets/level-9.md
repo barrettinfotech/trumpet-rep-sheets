@@ -210,7 +210,7 @@ Purcell, arr. Canadian Brass, *Purcell Suite*
 Purcell, arr. Mills, *Sonata for Two Trumpets and Brass*  
 Rachmaninoff, arr. Poirier, *Ave Maria from \"Vespers, Op. 37\"*  
 Schein, arr. King, *Two Pieces*  
-Simpson, arr. Mase, *A Suite of 17^th^ Century Dances*  
+Simpson, arr. Mase, *A Suite of 17<sup>th</sup> Century Dances*  
 Sousa, arr. Emprire Brass, *Washington Post*  
 Susato, arr. Iveson, *Renaissance Dances, Five Dances from "The Danserye"*  
 
