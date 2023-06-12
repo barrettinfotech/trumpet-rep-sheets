@@ -9,7 +9,7 @@ Caruso, [*Musical Calisthenics*](https://www.dropbox.com/s/nb7itwabg2mmvv8/Carus
 Clarke, [*Technical Studies*](https://www.dropbox.com/s/t1657rmh8z4bbcw/Clarke.pdf?dl=0) (Seventh Study, review previous) 
 Belk, [*Progressive Lip Flexibilities*](https://www.dropbox.com/s/7sz2tv13vc2ipuz/Belk%2C%20Progressive%20Lip%20Flexibilities.pdf?dl=0) (pp. 40-80)  
 Goldman, [*Practical Studies*](https://www.dropbox.com/s/tvpt8mfvca1rioq/Goldman%20Practical%20Studies.pdf?dl=0) (exercises 19-36)  
-Knevitt, [*Developing 21^st^ Century Range and Endurance*](https://www.dropbox.com/s/qym3sz7j7221sis/Knevitt%2C%20Developing-21st-Century-Range-and-Endurance-on-Trumpet.pdf?dl=0)  
+Knevitt, [*Developing 21<sup>st</sup> Century Range and Endurance*](https://www.dropbox.com/s/qym3sz7j7221sis/Knevitt%2C%20Developing-21st-Century-Range-and-Endurance-on-Trumpet.pdf?dl=0)  
 Rudolf, [*Scale Exercises for Trumpet*](https://www.dropbox.com/s/nu3t2e0lgznrnim/Rudolf%2C%20Scale%20Exercises%20for%20Trumpet.pdf?dl=0)  
 Stamp, [*Supplemental Studies*](https://www.dropbox.com/s/y2c9ifylls2xuc6/Stamp%2C%20Supplemental%20Studies.pdf?dl=0)  
 Poper, [*Commentaries on Jimmy Stamp*](https://www.dropbox.com/s/mxwtq1mrt8mfq1u/Poper%27s%20Commentaries%20on%20the%20Brasswind%20Methods%20of%20James%20Stamp.pdf?dl=0)  
@@ -46,7 +46,7 @@ Husa, [*Apotheosis of This Earth*](https://www.dropbox.com/s/b55mgs5n9bnb6nc/Hus
 Kirkland, [*Wind Band Excerpts*](https://www.dropbox.com/s/oh4k9lkl0j124zg/Kirkland%2C%20Wind%20Band%20Excerpts.pdf?dl=0)  
   
 **Orchestral excerpts:**  
-Johnson, [*20^th^ Century Orchestra Studies*](https://www.dropbox.com/s/fgnhj2xk0zzvvmc/Johnson%2C%2020th%20Cent%20Orchestra%20Studies.pdf?dl=0)  
+Johnson, [*20<sup>th</sup> Century Orchestra Studies*](https://www.dropbox.com/s/fgnhj2xk0zzvvmc/Johnson%2C%2020th%20Cent%20Orchestra%20Studies.pdf?dl=0)  
 Bach, [*B-minor Mass*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 \_\_\_\_, [*Christmas Oratorio*](https://www.dropbox.com/s/ujn1i4941xlmo7o/Sachs%2C%20The%20Orchestral%20Trumpet%20%28searchable%20text%29.pdf?dl=0)  
 Bartok, [*Miraculous Mandarin*](https://www.dropbox.com/s/7f16pntn5zki8li/Bartok%2C%20Der%20Wunderbare%20Mandarin%20excerpts%20tandem%20HME.pdf?dl=0) (tandem)  
