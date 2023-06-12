@@ -1,2 +1,2 @@
-intro to markdown .md for boomers
+intro to markdown .md  
 screenshots - copy to clipboard + paste
