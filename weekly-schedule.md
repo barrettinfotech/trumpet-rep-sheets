@@ -4,3 +4,7 @@
 | ---- | ------ | --------- | ------ | 
 | 7am  |        |           | Warmup in 202 |
 | 11am | Regular Studio in Runyan| ITG Ensemble in Stan's Studio| Clinic in 148 |
+
+## Announcements
+* ### Welcome Back!
+* ### Familarize yourself with Canvas and the digital journal.
