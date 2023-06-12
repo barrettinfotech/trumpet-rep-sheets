@@ -155,7 +155,7 @@ Honegger, [*Intrada*](https://www.dropbox.com/s/sn0493saxwg9bk4/Honegger%20Intra
 Peaslee, *Catalonia* (tpt double with flugel)  
 †Slater, [*Noctilucent*](https://www.dropbox.com/s/usplj0san1f2hs9/Winds%20of%20Change%20%28diversify%20the%20stand%29%20tpt.pdf?dl=0)  
 Sutermeister, [*Gavotte de concert*](https://www.dropbox.com/s/coqhxeyevxkky9r/Sutermeister%20Gavotte%20de%20Concert.pdf?dl=0)  
-Tull*, Three Bagatelles*  
+Tull, *Three Bagatelles*  
 Turrin, [*Escapade*](https://www.dropbox.com/s/enhkyumrf91sok9/Turrin%2C%20Escapade%20Eb%20cor%20Bb%20picc%20pf.pdf?dl=0) (Eb or piccolo)  
   
 **Concertos:**  
@@ -210,7 +210,7 @@ Siebert, *Bees a buzzin'*
   
 **Trio:**  
 Gabaye, Pierre. *Recréation* (trio plus piano)  
-Plog, Anthony*. Triple Concerto* (trio plus piano or orchestra)  
+Plog, Anthony. *Triple Concerto* (trio plus piano or orchestra)  
 Plog, *Trio*  
 Reynolds, Verne. *Trio*  
 Stephenson, *La Grande Vitesse* (trio concerto)  
