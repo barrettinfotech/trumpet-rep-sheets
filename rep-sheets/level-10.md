@@ -178,7 +178,7 @@ Ligner, [*Theme Suisse*](https://www.dropbox.com/s/q1sryz6u73f9sbo/Ligner%2C%20T
 Puccini (Sparke), [*Three Puccini Arias*](https://www.dropbox.com/s/433qll07tnawko4/Sparke%2C%20Three%20Puccini%20Arias%20cor%20pf.pdf?dl=0)  
   
 **Short 20<sup>th</sup>-c. and 21<sup>st</sup>-c. pieces:**  
-Ameller, *Belle Province, [Trois Rivieres]*(https://www.dropbox.com/s/w100wfsp743xql2/Ameller%2C%20Belle%20Province-Trois-Rivi%C3%A8res%20tpt%20Bb%20or%20C%2C%20pf.pdf?dl=0)  
+Ameller, *Belle Province*, [*Trois Rivieres*](https://www.dropbox.com/s/w100wfsp743xql2/Ameller%2C%20Belle%20Province-Trois-Rivi%C3%A8res%20tpt%20Bb%20or%20C%2C%20pf.pdf?dl=0)  
 Ameller, [*In the glow of Sunset*](https://www.dropbox.com/s/7fg4z4mcbr8vg71/Ameller%2C%20In%20the%20glow%20of%20Sunset%20tpt%20pf.pdf?dl=0) (tpt in C)  
 Balay, [*Petite Piece Concertante*](https://www.dropbox.com/s/leon7sifw1gdo2c/Balay%20-%20Petite%20Piece%20Concertante.pdf?dl=0)  
 \_\_\_\_\_, [*Contest Piece*](https://www.dropbox.com/s/ge0tcj3rj48enm6/Balay%2C%20Contest-Piece%20trumpet.pdf?dl=0)  
