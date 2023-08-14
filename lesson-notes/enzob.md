@@ -1,4 +1,4 @@
-### Lesson August 14th
+## Lesson August 14th
 
 Hi Enzo,
 
