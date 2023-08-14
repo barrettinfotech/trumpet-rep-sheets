@@ -3,5 +3,5 @@
 | time | Monday | Wednesday | Friday |
 | ---- | ------ | --------- | ------ |
 | 7am | | | |
-|11am|Studio Olympics|butterfly watching|calisthenics|
+|11am|Studio Olympics|butterfly destruction|calisthenics|
 
