@@ -1,7 +1,7 @@
-## Studio Schedule Week of May 15th
+## Studio Schedule Week of August 21st
 
 | time | Monday | Wednesday | Friday |
 | ---- | ------ | --------- | ------ |
 | 7am | | | |
-|11am|Studio Olympics|butterfly destruction|calisthenics|
+|11am|First Studio Class!|||
 
