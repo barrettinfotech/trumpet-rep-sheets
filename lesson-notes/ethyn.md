@@ -8,5 +8,5 @@ Work on Clarke 1st study--at least the first page (chromatic)
 
 Then work on all major scales. All two octaves. 
 
-
+Work on Bordogni etude 1 (in D major)
 
