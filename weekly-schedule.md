@@ -1,10 +1,10 @@
 ## Studio Schedule Week of August 21st
 
-| time | Monday              | Tuesday | Wednesday        | Thursday                 | Friday |
-|------|---------------------|---------|------------------|--------------------------|--------|
-| 7am  | Warmup!             |         |                  |                          |        |
-| 10am |                     |         |                  | Competitive Tpt Ensemble |        |  
-| 11am | First Studio Class! |         | Warmup! Outside! |                          |        |
+| time | Monday              | Tuesday | Wednesday        | Thursday                 | Friday                  |
+|------|---------------------|---------|------------------|--------------------------|-------------------------|
+| 7am  |                     | Warmup! |                  |                          |                         |
+| 10am |                     |         |                  | Competitive Tpt Ensemble |                         |  
+| 11am | First Studio Class! |         | Warmup! Outside! |                          | Music Convocation (ORH) |
 
 ## Announcements
 
