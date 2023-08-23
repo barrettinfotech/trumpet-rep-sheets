@@ -2,8 +2,8 @@
 
 | time | Monday | Wednesday | Friday |
 | ---- | ------ | --------- | ------ |
-| 7am | | | |
-|11am|First Studio Class!|||
+| 7am | Warmup!| | |
+|11am|First Studio Class!| Warmup! Outside! ||
 
 ## Announcements
 
