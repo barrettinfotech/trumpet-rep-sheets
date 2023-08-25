@@ -1,3 +1,5 @@
 ## Lesson Notes
 
 Welcome back to studio Hunter! I'll add your lesson notes here throughout the semester.
+
+Hi Hunter--the Llewellyn is a great choice for one of your solo pieces this semester. Also work on Charlier 1, and pick another etude for next week. 
