@@ -1,10 +1,10 @@
 ## Studio Schedule Week of August 21st
 
-| time | Monday              | Tuesday | Wednesday        | Thursday                 | Friday                  |
-|------|---------------------|---------|------------------|--------------------------|-------------------------|
-| 7am  |                     | Warmup! |                  |                          |                         |
-| 10am |                     |         |                  | Competitive Tpt Ensemble |                         |  
-| 11am | First Studio Class! |         | Warmup! Outside! |                          | Music Convocation (ORH) |
+| time | Monday          | Tuesday         | Wednesday        | Thursday     | Friday |
+|------|-----------------|-----------------|------------------|--------------|--------|
+| 8am  | Warmup (Runyan) | Warmup (Runyan) |                  |              |        |
+| 10am |                 | Comp Tpt Ens    |                  | Comp Tpt Ens |        |  
+| 11am | Studio          |                 | Warmup! Outside! |              |        |
 
 ## Announcements
 
