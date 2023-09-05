@@ -1,5 +1,10 @@
 ## Lesson Notes
 
+### week 3
+
+smooth out b min. keep soft most of the way through. 
+Williams: make sure fingers are good. also keep softer and lighter for pacing. 
+
 ## week 2
 
 Enzo, Honnegger--play more linear, not always too loud, and watch lengths of notes--especially at top of page 2. Next week play fast section--keeping in mind the 3/4 time feel underneath the 3 against2.
