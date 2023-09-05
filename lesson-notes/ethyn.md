@@ -1,5 +1,12 @@
 ## Lesson Notes
 
+## week 3
+
+Clarke 1 sounding very good when you play with a relatively slow met speed (today it was at 100 for quarter). I like your controlled dynamic (soft). 
+Work on Major scales and single tongue proficiencies.
+Bordogni 1--record. 2, work on singing then mouthpiece--use drone or recording as sound reference (or piano)
+Hansen--play along with recording at slower speed.
+
 ### Ethyn, good job. 
 
 Welcome to studio Ethyn! I'll add your lesson notes here throughout the semester.
