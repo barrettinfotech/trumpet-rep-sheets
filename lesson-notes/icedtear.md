@@ -1,5 +1,10 @@
 ## Lesson Notes
 
+## week 3
+
+Work on Scriabin--maybe as if you're doing a jazz transcription. Listen for a bar, then play back. Continue that way to the end. 
+slow vibrato with met
+
 Welcome to studio Bryce! I'll add your lesson notes here throughout the semester.
 
 ## week 2
