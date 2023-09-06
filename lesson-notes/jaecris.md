@@ -1,5 +1,14 @@
 ## Lesson Notes
 
+### week 3
+
+Good job, Juniper! for the Bordogni 1, you're sounding much better, but try to sing this piece. Then buzz it. Use a pitch reference to keep you on pitch. 
+Keep working on major scales (1 octave for now, but soon expand to 2 octaves when possible--1 octave + 5 notes when it's too high). 
+
+I'd like to hear another piece or two when I get back--in the week of the 18th. 
+
+
+
 Welcome to studio Juniper! I'll add your lesson notes here throughout the semester.
 
 ## week 2
