@@ -1,5 +1,15 @@
 ## Lesson Notes
 
+### week 3
+
+Peri--more tone on shorter notes. Find notes in the scale. Full value all the way to end of notes.
+
+Concone in a minor, great job!!!! 
+
+Look at Gatti etude in G major--not too short on short notes.
+
+Start looking at Balay, Petite Piece Concertante
+
 ## week 2
 
 Clarke 5 with one breath every two lines. We played at 70 for the 8th note--incrementally work up from there.
