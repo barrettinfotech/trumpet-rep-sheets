@@ -2,6 +2,14 @@
 
 Welcome back to studio Liv! I'll add your lesson notes here throughout the semester.
 
+### week 3
+
+Good job on the Bizet. Some strategies to make it better--listen to an opera singer singing this. Try to imitate on trumpet what the singer is doing. Use vibrato. Practice vibrato deliberately with a metronome when warming up or doing fundamentals. 5 minutes a day or so. Gradually speed up metronome. Then bring that developed vibrato back into your music.
+We explored ways to work with recorded music. Ask Kris Usrey about ripping mp3s from videos on YouTube. 
+When you get your mp3, then run it through an app like Transcribe! or the Amazing Downloader. They don't play nice with protected file types--that's why you need an mp3. 
+Then you can get the recording into the key you want to work with. At the speed you want to work with. This is especially great for jazz, but also very helpful for classical trumpet.
+When practicing, try to resonate all the notes--use buzzing practice to help get the chops in sync with what the trumpet wants to do. You'll sound great that way.
+
 ## 2nd week
 Why yo range cheeks?
 
