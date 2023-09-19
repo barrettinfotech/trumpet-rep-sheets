@@ -1,5 +1,10 @@
 ## Lesson Notes
 
+## week 5
+
+Nice work on the Pines offstage. We worked on rhythmic stability using 8ths to be more faithful to the pulse. When breathing between the phrases, take an 8th off of previous note so that the next note comes in on time. 
+Great work on the Haydn. We worked on phrasing details. 1st three notes are the main theme, so try not to lift too much on the E. Develop a beautiful bounce on 8th notes in this movement (imitate a violin playing a Mozart violin concerto). Trills should slow down at the end (and the resolution should be exactly in time). Same is true for phrases that end in 8ths--try not to slow down at the end right before the last note of the phrase. 
+
 ### week 3
 
 smooth out b min. keep soft most of the way through. 
