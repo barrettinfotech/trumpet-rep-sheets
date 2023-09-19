@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 5
+
+## week 4 (group lesson)
+
 ## week 3
 
 Work on Scriabin--maybe as if you're doing a jazz transcription. Listen for a bar, then play back. Continue that way to the end. 
