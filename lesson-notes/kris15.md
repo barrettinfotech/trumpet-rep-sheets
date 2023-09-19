@@ -1,5 +1,13 @@
 ## Lesson Notes
 
+## week 5
+
+We worked on Jolivet--try smoothing up the articulation. Work on Hembree and Clarke 1 for triple tongue. Use mouthpiece to allow the lips to do some of the pitch changing (as opposed to relying too much on the vowel placememnt of the tongue to change pitch. If too reliant on vowel placement, then it's really hard to multiple tongue in extreme or quickly changing registers.
+
+Look at sticky valves when you get a chance. 
+
+Try out your newly added solo repertoire. Maybe bring in Rachmaninoff soon.
+
 Welcome back to studio Kris! I'll add your lesson notes here throughout the semester.
 
 Good week 1 lesson yeah!
