@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 5
+
+Good work on Turrin. We explored using smooth but full air to help phrase the main theme. We tried to avoid footballing too much or to have gaps in the line. I ordered the Turring so that we can have an accompaniment and a C tpt part (but see if you can get a working version of the C tpt part while we're waiting). I wouldn't mind hearing the de Luca if you want to play that next lesson
+
 ## week 3
 
 Good on Top Tones range--keep relaxed, scan for excess tension when possible, keep soft. 
