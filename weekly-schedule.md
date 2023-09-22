@@ -8,4 +8,4 @@
 
 ## Announcements
 
-Remember group lessons this week in addition to your regular lesson!
+ITG meeting 11am on the 29th!
