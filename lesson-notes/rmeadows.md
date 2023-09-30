@@ -1,5 +1,10 @@
 ## Lesson Notes
 
+## week 6
+
+Riley--good work on your jazz concert. I thought your solo was great. Keep working on response and full, warm tone for all of your playing. This comes from working on basic things like free buzzing, mouthpiece buzzing, flow studies, long tones, lip bends, playing softly (like Clarke studies)
+
+
 ### week 3
 
 Shostakovich. Working on response and tone with breath attacks, soft playing (as is asked for here) and mouthpiece playing. Try to have a pitch reference for mp here--like a drone or piano or recording
