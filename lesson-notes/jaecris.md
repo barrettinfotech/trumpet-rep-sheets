@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 6
+
+Juniper--I'm proud of your progress. Hang in there. Read duets with as many in studio as possible.
+
 ### week 3
 
 Good job, Juniper! for the Bordogni 1, you're sounding much better, but try to sing this piece. Then buzz it. Use a pitch reference to keep you on pitch. 
