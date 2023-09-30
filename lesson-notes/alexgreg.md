@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 5
+
+Good job on scales and Clarke! 
+
 Welcome to studio Alex! I'll add your lesson notes here throughout the semester.
 
 ## week 2
