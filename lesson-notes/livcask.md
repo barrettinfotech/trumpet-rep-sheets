@@ -1,5 +1,11 @@
 ## Lesson Notes
 
+## week 6
+
+I'm so sad you're going to leave after this semester. I think you can shift a bit more towards jazz playing at this point. But you'll need something to play for jury. I have some ideas for pieces that are a bit more expressive in a jazz way.
+
+
+
 Welcome back to studio Liv! I'll add your lesson notes here throughout the semester.
 
 ### week 3
