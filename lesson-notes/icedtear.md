@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 6
+
+Bryce--coming along really well. Try to focus on tone, embouchure stability and reading. Get together with others in studio to read duets. 
+
 ## week 5
 Good work towards developing a more stable and horizontal approach to lyrical playing. We tried 2 melodies out of the 1st book by Tabakov. The "method" we used was to play on trumpet first, then on mouthpiece, then back on trumpet. 
 
