@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 6
+
+Ethyn, you're doing great. The place to work for the most growth is in rhythm and reading. Try to play duets and excerpts with as many fellow students as possible. 
+
 ## week 3
 
 Clarke 1 sounding very good when you play with a relatively slow met speed (today it was at 100 for quarter). I like your controlled dynamic (soft). 
