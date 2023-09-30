@@ -1,5 +1,9 @@
 ## Lesson Notes
 
+## week 6
+
+Dylan, try to committ to your solo rep by this point in the semester. Work consistently on your chosen stuff. 3 hours of practice every day would be ideal--but make sure much of that is soft playing (like Clarke!). 
+
 ### week 3
 warmup good--make sure you're doing good mouthpiece buzzing. Focus also on soft playing in general and on breath attacks. 
 Gershwin not too loud. Keep tone going through slurs and vibrato not too slow.
