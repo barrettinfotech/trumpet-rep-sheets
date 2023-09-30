@@ -1,5 +1,11 @@
 ## Lesson Notes
 
+## week 5
+
+Goedicke--work toward making a rich and wonderful tone every note. Direction is important. All of this while trying to tackle the technical difficulties. Don't forget to work on lip flexibility for this piece. 
+
+____________________
+
 Welcome back to studio Arjen! I'll add your lesson notes here throughout the semester.
 
 Hi Arjen! Love your Goedicke concerto choice. Great piece and great for you. Review the Martinu--it may become a good choice for a competition like NTC or ITG. 
