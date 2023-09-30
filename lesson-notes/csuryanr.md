@@ -1,5 +1,11 @@
 ## Lesson Notes
 
+## week 5
+
+Ryan, all sounding good. Make sure you work on your jury piece. Are you going to commit to the Balay "Petite Piece Concertante?"
+
+
+
 ### week 3
 
 Peri--more tone on shorter notes. Find notes in the scale. Full value all the way to end of notes.
