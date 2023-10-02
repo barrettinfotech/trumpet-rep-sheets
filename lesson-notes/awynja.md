@@ -1,5 +1,8 @@
 ## Lesson Notes
 
+## week 7
+test
+
 ## week 5
 
 Goedicke--work toward making a rich and wonderful tone every note. Direction is important. All of this while trying to tackle the technical difficulties. Don't forget to work on lip flexibility for this piece. 
