@@ -1,5 +1,15 @@
 ## Lesson Notes
 
+## week 7
+Work on memorizing the Haydn. Things to look out for:
+1. keep pulse steady. Don't slow down toward end of phrase or gesture
+2. vibrato not too slow. Sometimes use the jello approach if music is a little marcato
+3. keep the 3-note motive strong throughout (don't lift too much on last note--however, don't play without some phrasing)
+4. perhaps keep legato when resolving a trill (don't tongue too harshly the resolution notes)
+
+we also talked about modernist, romantic and rhetorical philosophies of playing music. Try to successfully combine a rhetorical and modernist approach when playing Haydn on a modern trumpet. 
+
+
 ## week 5
 
 Nice work on the Pines offstage. We worked on rhythmic stability using 8ths to be more faithful to the pulse. When breathing between the phrases, take an 8th off of previous note so that the next note comes in on time. 
