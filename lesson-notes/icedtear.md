@@ -1,5 +1,11 @@
 ## Lesson Notes
 
+## week 7
+
+Worked slurs--"stretching" to get a slur without gaps. Work with the Irons 27 Groups book to get better and better!
+We worked on the Bordogni # 2. We isolated the major 6th interval. Then we played in context until better. We talked about the 4 main ways to practice: repetition, metronome (incrementally increasing speed until arriving at a target speed), isolation of hard passages, and quality control. 
+Next lesson, finish Bordogni 2. Hansen. And start tackling an excerpt. Keep passing off proficiencies with Will. thanks!! good work!
+
 ## week 6
 
 Bryce--coming along really well. Try to focus on tone, embouchure stability and reading. Get together with others in studio to read duets. 
