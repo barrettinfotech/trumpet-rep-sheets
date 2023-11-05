@@ -35,7 +35,3 @@ Work on Intrada for NTC.
 Work on NRO audition.
 
 Work on high range for the best results with Intrada. Also please learn to play soft.
-
-Enzo
-
-Test!!!
