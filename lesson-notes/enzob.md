@@ -1,10 +1,8 @@
 ## Lesson Notes
 
-### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
+#### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
 
 Enzo, I am impressed with this new interface. Thanks for making this spiffy!
-
-
 
 ## week 7
 
