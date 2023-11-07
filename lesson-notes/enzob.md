@@ -1,5 +1,11 @@
 ## Lesson Notes
 
+## week 12
+
+Great work on Haydn. Read your sticky notes. in general many notes too sharp and many ends of phrases and quarter notes are a bit too short. pace yourself to high Bb
+
+
+
 #### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
 
 Enzo, I am impressed with this new interface. Thanks for making this spiffy!
