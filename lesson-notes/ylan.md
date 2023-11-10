@@ -1,11 +1,16 @@
 ## Lesson Notes
 
+## week 12
+
+Good work on the Böhme, Dylan. We got through it. AND with metronome which is a great accomplishment. KEEP working on this. Try at least one hour a day (and two if you have time) in addition to all the other things you're doing on the trumpet.&#x20;
+
 ## week 6
 
-Dylan, try to committ to your solo rep by this point in the semester. Work consistently on your chosen stuff. 3 hours of practice every day would be ideal--but make sure much of that is soft playing (like Clarke!). 
+Dylan, try to committ to your solo rep by this point in the semester. Work consistently on your chosen stuff. 3 hours of practice every day would be ideal--but make sure much of that is soft playing (like Clarke!).
 
 ### week 3
-warmup good--make sure you're doing good mouthpiece buzzing. Focus also on soft playing in general and on breath attacks. 
+
+warmup good--make sure you're doing good mouthpiece buzzing. Focus also on soft playing in general and on breath attacks.
 Gershwin not too loud. Keep tone going through slurs and vibrato not too slow.
 
 ## week 2
