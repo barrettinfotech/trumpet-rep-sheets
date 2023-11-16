@@ -1,10 +1,19 @@
 ## Lesson Notes
 
+## Special mid-week edition!
+
+4 basic ways of practicing:
+
+1. repetition
+2. isolation
+3. use metronome to gradually increase tempo
+4. quality control ("can I play this passage X number of times in a row the way I want?")
+
+
+
 ## week 12
 
 Great work on Haydn. Read your sticky notes. in general many notes too sharp and many ends of phrases and quarter notes are a bit too short. pace yourself to high Bb
-
-
 
 #### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
 
