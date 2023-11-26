@@ -1,5 +1,7 @@
 ## Lesson Notes
 
+**Hi** there
+
 ## Special mid-week edition!
 
 4 basic ways of practicing:
@@ -8,8 +10,6 @@
 2. isolation
 3. use metronome to gradually increase tempo
 4. quality control ("can I play this passage X number of times in a row the way I want?")
-
-
 
 ## week 12
 
