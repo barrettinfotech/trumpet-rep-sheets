@@ -1,7 +1,5 @@
 ## Lesson Notes
 
-**Hi** there
-
 ## Special mid-week edition!
 
 4 basic ways of practicing:
