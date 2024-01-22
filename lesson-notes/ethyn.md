@@ -8,7 +8,7 @@ Etudes: Hering, Etudes in 24 keys
 
 Excerpts: Copland, Outdoor Overture solo; Hansen, Valdres; Hindemith, Symphony in Bb (1st, 2nd mvt)
 
-
+Sight read Hering 1. Next week Hering 2. Record for Canvas.
 
 
 
