@@ -2,11 +2,11 @@
 
 ## Week 1
 
-Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione
+Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione, Hindemith, Sonata
 
 Etudes: Hering, Etudes in 24 keys
 
-
+Excerpts: Copland, Outdoor Overture solo; Hansen, Valdres; Hindemith, Symphony in Bb (1st, 2nd mvt)
 
 
 
