@@ -1,3 +1,19 @@
+# Spring 2024
+
+## Week 1
+
+Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione
+
+Etudes: Hering, Etudes in 24 keys
+
+
+
+
+
+
+
+
+
 ## Lesson Notes
 
 week 13
@@ -15,8 +31,6 @@ Ethyn super terrific job with the SmartMusic app helping you learn your Scarlatt
 5\. good dynamic contrasts!
 
 6\. "Play-ing"
-
-
 
 ## week 6
 
