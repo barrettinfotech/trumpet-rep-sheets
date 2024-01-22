@@ -1,6 +1,6 @@
-Spring 2024
+# **Spring 2024**
 
-Week 1
+## Week 1
 
 Etudes: Charlier 4, 5, 6, 14
 
