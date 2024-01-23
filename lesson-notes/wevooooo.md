@@ -6,6 +6,12 @@
 
 Talked about how to start journaling your practice.
 
+Brandt, Etude 1, 2, 3, 4 (record 1)
+
+Solos: Latham Suite; McKee Amazing Grace
+
+Excerpts: Copland, Rodeo, "Hoe Down," Ives, Variations on America; Persichetti, "Divertimento"&#x20;
+
 
 
 
