@@ -4,6 +4,8 @@
 
 ## Week 1
 
+Talked about how to start journaling your practice.
+
 
 
 
