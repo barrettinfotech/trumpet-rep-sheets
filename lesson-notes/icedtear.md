@@ -6,7 +6,9 @@ good start to your journal~
 
 Etudes: Gisondi #1 (record for 1st etude). Check out #12.&#x20;
 
-Solo:&#x20;
+Solo: Kennan Sonata. Use 3rd valve slide for low C#. Long notes (but strong front-end to note). Bach, Partita #1
+
+Excerpts: Petrouchka,&#x20;
 
 ## Lesson Notes
 
