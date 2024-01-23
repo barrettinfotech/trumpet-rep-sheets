@@ -1,12 +1,22 @@
 # Dr. Curtis' feedback for Arjen
 
+# Spring 2024
+
+## Week 1
+
+Etudes: Bousquet--good for sight reading. Also do Charlier #1
+
+
+
+
+
+
+
 Week 13
 
 Brahm Academic better! Make smoother phrasing. Keep in tempo. Last notes of phrases not cut too short.&#x20;
 
 Goedicke: cadenza--work to polish. 10 and 13 bigger and more organic in slow down. keep trills moving.&#x20;
-
-
 
 ## Week 12&#x20;
 
