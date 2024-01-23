@@ -2,7 +2,9 @@
 
 ## Week 1
 
+good start to your journal~
 
+Etudes
 
 
 
