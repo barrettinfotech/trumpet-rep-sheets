@@ -1,5 +1,19 @@
 ## Lesson Notes
 
+# Spring 2024
+
+## Week 1
+
+Etudes: Characteristic #2, Charlier #2
+
+Solos: Honegger, Haydn
+
+Excerpts: Lincolnshire flugelhorn solo
+
+
+
+
+
 ## Special mid-week edition!
 
 4 basic ways of practicing:
