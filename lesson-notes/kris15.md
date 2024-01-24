@@ -4,7 +4,11 @@
 
 ## week 1
 
-etudes: Charlier 3 and beyond; Brandt,&#x20;
+etudes: Charlier 3 and beyond; Brandt, 6 and beyond
+
+Solos: ones for your recital
+
+Excerpts: Ravel Piano Concerto in G; Strauss Ein Heldenleben E-flat then B-flat; Strauss Don Juan
 
 ## week 6
 
