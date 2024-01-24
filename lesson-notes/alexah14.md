@@ -1,12 +1,14 @@
 ## Lesson Notes
 
-spring 2024
+# spring 2024
 
-week 1
+## week 1
 
 etudes: Clarke Characteristics
 
 solos: Framed by McDowell, Reverie&#x20;
+
+excerpts: Petrouchka, Mahler 5, explore an underrepresented composer's trumpet excerpt&#x20;
 
 ## week 12
 
