@@ -10,6 +10,8 @@ Record  Brandt 3. Slur arpeggiation to improve before adding back in tongue
 
 Solos: Arutunian, p. 1 for now.&#x20;
 
+Excerpts: Sousa,&#x20;
+
 ## week 5
 
 Good job on scales and Clarke!
