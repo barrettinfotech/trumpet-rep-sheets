@@ -1,16 +1,18 @@
 ## Lesson Notes
 
+spring 2024
+
+week 1
+
+etudes: Clarke Characteristics
+
+solos: Framed by McDowell, Reverie&#x20;
+
 ## week 12
-
-
 
 Good job on your whirlwind proficiency adventure today, Alexa. Your range, tone, articulation and knowledge of scales are NOTABLY better these days!
 
 Work on Bordogni Transposition etude #1, and pick out a new etude (are there any by female composers?)
-
-
-
-
 
 ### Week 3
 
