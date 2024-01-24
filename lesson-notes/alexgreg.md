@@ -6,6 +6,8 @@
 
 Etudes: Brandt 3 and on. Snedecor
 
+Record  Brandt 3. Slur arpeggiation to improve before adding back in tongue
+
 
 
 ## week 5
