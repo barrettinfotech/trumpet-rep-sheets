@@ -1,8 +1,16 @@
 ## Lesson Notes
 
+# spring 2024
+
+## week 1
+
+
+
+
+
 ## week 5
 
-Good job on scales and Clarke! 
+Good job on scales and Clarke!
 
 Welcome to studio Alex! I'll add your lesson notes here throughout the semester.
 
