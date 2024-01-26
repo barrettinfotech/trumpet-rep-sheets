@@ -1,6 +1,6 @@
 ## Welcome to your journal!
 
-test
+test test
 
 ### Week 1
 
