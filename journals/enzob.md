@@ -1,7 +1,5 @@
 ## Welcome to your journal!
 
-Eb
-
 ### Week 1
 
 ### Week 2
