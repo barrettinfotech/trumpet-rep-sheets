@@ -32,6 +32,4 @@
 
 ### Week 16
 
-
-
 hi there
