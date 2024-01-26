@@ -1,5 +1,7 @@
 ## Welcome to your journal!
 
+test
+
 ### Week 1
 
 ### Week 2
