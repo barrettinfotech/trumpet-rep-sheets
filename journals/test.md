@@ -31,5 +31,3 @@
 ### Week 15
 
 ### Week 16
-
-hi there
