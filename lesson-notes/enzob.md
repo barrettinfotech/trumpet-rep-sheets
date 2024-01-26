@@ -2,8 +2,6 @@
 
 # Spring 2024
 
-Week2
-
 ## Week 1
 
 Etudes: Characteristic #2, Charlier #2
