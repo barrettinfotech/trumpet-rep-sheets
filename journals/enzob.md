@@ -4,6 +4,12 @@
 
 ### Week 2
 
+Friday:
+
+* Caruso
+* Petrouchka, work on getting comfortable at 96,100,104
+* Record and work on M5
+
 ### Week 3
 
 ### Week 4
