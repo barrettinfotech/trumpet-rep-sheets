@@ -32,6 +32,8 @@ Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden'
 
 ### Week 3
 
+1/29 - *1st performance for studio of 2024!*&#x20;
+
 ### Week 4
 
 ### Week 5
