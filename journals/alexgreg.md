@@ -28,7 +28,7 @@ Fri. 1/26 - I lost my fucking mouthpiece :) met Bill Pfund & played his demo mod
 
 Sat. 1/27 - Absolutely nothing, lips chapped. Rose says I can maybe borrow a 3C.
 
-Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden's at home and Olivia's on a date so get lunch & get down on to-do list. **<u>GOALS:</u>** Record 1st Sunday Etude (Brant 3 or Berdiev 2), resubmit a better take for BK mello assignment #2, Patrick Allison office hours, prep for proficiencies & playing in studio tomorrow, finish MSOE mini-lesson plan & late action items, go gym.
+Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden's at home and Olivia's on a date so get lunch & get down on to-do list. **<u>GOALS:</u>** Record 1st Sunday Etude (Brant 3 or Berdiev 2), resubmit a better take for BK mello assignment #2, Patrick Allison office hours, prep for proficiencies & playing in studio tomorrow, finish MSOE mini-lesson plan & late action items, practice & prep bassoon for woodwind tech tmr, go gym.
 
 ### Week 3
 
