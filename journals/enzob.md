@@ -10,6 +10,14 @@ Friday:
 * Petrouchka, work on getting comfortable at 96,100,104
 * Record and work on M5
 
+Saturday:
+
+* Intrada 120-182
+* Petroucha
+* Run
+
+Run Charlier 2, Arban, Haydn, Intrada, M5, Pet, Pines, Pictures, Leonore
+
 ### Week 3
 
 ### Week 4
