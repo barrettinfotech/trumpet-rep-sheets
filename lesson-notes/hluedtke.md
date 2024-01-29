@@ -4,9 +4,9 @@
 
 ## week 2
 
-Invocation--tried mutes. Dennis Wick was good, red Montreal. Hunter's mutes--you like the harmon without stem
+Invocation--tried mutes. Dennis Wick was good, red Montreal. Hunter's mutes--you like the harmon without stem. Line, tone, proportion of rhythms
 
-etude book: Snedecor, maybe starting on 5.&#x20;
+etude book: Snedecor, maybe starting on 5. record ASAP
 
 excerpts: Petroucka
 
