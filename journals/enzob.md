@@ -16,7 +16,12 @@ Saturday:
 * Petroucha
 * Run
 
-Run Charlier 2, Arban, Haydn, Intrada, M5, Pet, Pines, Pictures, Leonore
+&#x20;     Run Charlier 2, Arban, Haydn, Intrada, M5, Pet, Pines, Pictures, Leonore
+
+Sunday:
+
+* Trumpet Sectional
+* Work on Chalier 2 through mic
 
 ### Week 3
 
