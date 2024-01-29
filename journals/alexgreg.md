@@ -18,7 +18,7 @@ Sun. 1/21 - Pretty heavy playing at camp. Mom @ show & tell! Corps hall and nood
 
 Mon. 1/22 - I don't remember if I warmed up before 10am wood tech, but played duets w/ Ethyn after studio. Practice after ART100. I RSVP'd but I literally cannot go to the KKPSI stuff. Late night practice after bestie hangout to one-up Jordan in the BK slack.
 
-Tue. 1/23 - can't remember my warmup, idk if I even got one. x2 ensembles, ditch KKPSI (just kidding send Lucy a very amicable text), goodnight.
+Tue. 1/23 - can't remember my warmup, idk if I even got one. x2 ensembles, ditch KKPSI (just kidding send Lucy a very amicable text), goodnight. <u>Jazz 2:</u> Blues lick for Cuddles tune!
 
 Wed. 1/24 - *1st lesson of 2024!* Artunian, 1st page slow accuracy for next week. Brandt 3, Berdiev 2. Practice afterward, pack, come back and record for BK, leave for CMEA!
 
@@ -32,13 +32,26 @@ Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden'
 
 ### Week 3
 
-1/29 - *1st performance for studio of 2024!* Went on a run w/ Rose ~7:10-7:50am. Warmup ~9am, woodwind tech, then studio! Played Etude 2 from Berdiev's book of 17. **<u>Critique:</u>**
+Mon. 1/29 - *1st performance for studio of 2024!* Went on a run w/ Rose ~7:10-7:50am. Warmup ~9am, woodwind tech, then studio! Played Etude 2 from Berdiev's book of 17. **<u>Critique:</u>**&#x20;
 
 * *<u>Tempo:</u>* More ritardando! Piu mosso section felt a little frantic\* <- Ryan & Riley (also playing this!)
-* *<u>Endurance:</u>* Clarke's w/ repeats! Got airier & less rich halfway down the page. <- Will & Drew
+* *<u>Endurance:</u>* Clarke's w/ repeats! \*Got airier & less rich halfway down the page. <- Will & Drew
 * *<u>Range/Flexibility:</u>* (G3 - Ab4, Ab3 - A4, etc. before piu mosso) Low-high valve schmear<- Arjen
 
-1/29 cont'd - *1st jazz lesson of the semester!* (2-3pm)
+1/29 cont'd - *1st jazz lesson!* (2pm) **<u>Goals:</u>** "Someone to Watch Over Me" & more rep ideas for *Mon 2/12*. Next studio I play in: *Mon. 3/4*.
+
+Tue. 1/30 -&#x20;
+
+Wed. 1/31 - *Lesson!*
+
+* <u>Etudes:</u>
+  * New & improved Berdiev 2
+  * Brandt 2 for this Sunday's recording
+* <u>Excerpts:</u>
+  * Sousa's "Golden Jubilee"
+  * Jazz licks/transcriptions? "Someone to Watch Over Me," *Prince of Egypt*, Morricone?
+* <u>Solos:</u>
+  * Artunian! 1st page, accuracy
 
 ### Week 4
 
