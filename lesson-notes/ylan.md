@@ -1,5 +1,13 @@
 # **Spring 2024**
 
+## week 2
+
+Charlier 3
+
+
+
+
+
 ## Week 1
 
 Etudes: Charlier 4, 5, 6, 14
@@ -7,8 +15,6 @@ Etudes: Charlier 4, 5, 6, 14
 Solos: Charlier 3; Hummel mvt. 1
 
 Charlier 3--more front end on beginning of notes.&#x20;
-
-
 
 ## Lesson Notes
 
