@@ -25,6 +25,12 @@ Sunday:
 
 ### Week 3
 
+Things for audition success: petrouchka 100x, intr tt 100x, fix char 2
+
+Monday:
+
+* Worked on stamp and quiet daniels
+
 ### Week 4
 
 ### Week 5
