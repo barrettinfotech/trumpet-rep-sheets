@@ -1,6 +1,8 @@
 ## Lesson Notes
 
-spring 2024
+# spring 2024
+
+## week 2
 
 Invocation--tried mutes. Dennis Wick was good, red Montreal. Hunter's mutes--you like the harmon without stem
 
