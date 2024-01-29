@@ -28,11 +28,17 @@ Fri. 1/26 - I lost my fucking mouthpiece :) met Bill Pfund & played his demo mod
 
 Sat. 1/27 - Absolutely nothing, lips chapped. Rose says I can maybe borrow a 3C.
 
-Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden's at home and Olivia's on a date so get lunch & get down on to-do list. **<u>GOALS:</u>** Record 1st Sunday Etude (Brant 3 or Berdiev 2), resubmit a better take for BK mello assignment #2, Patrick Allison office hours, prep for proficiencies & playing in studio tomorrow, finish MSOE mini-lesson plan & late action items, practice & prep bassoon for woodwind tech tmr, go gym.
+Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden's at home and Olivia's on a date so get lunch & get down on to-do list. **<u>GOALS:</u>** Record 1st Sunday Etude (Brant 3 or Berdiev 2), resubmit a better take for BK mello assignment #2, Patrick Allison office hours, prep for proficiencies & playing in studio tomorrow, finish MSOE mini-lesson plan & late action items, practice & prep bassoon for woodwind tech tmr, go gym. <- missed last 2 :/
 
 ### Week 3
 
-1/29 - *1st performance for studio of 2024!*&#x20;
+1/29 - *1st performance for studio of 2024!* Went on a run w/ Rose ~7:10-7:50am. Warmup ~9am, woodwind tech, then studio! Played Etude 2 from Berdiev's book of 17. **<u>Critique:</u>**
+
+* *<u>Tempo:</u>* More ritardando! Piu mosso section felt a little frantic\* <- Ryan & Riley (also playing this!)
+* *<u>Endurance:</u>* Clarke's w/ repeats! Got airier & less rich halfway down the page. <- Will & Drew
+* *<u>Range/Flexibility:</u>* (G3 - Ab4, Ab3 - A4, etc. before piu mosso) Low-high valve schmear<- Arjen
+
+1/29 cont'd - *1st jazz lesson of the semester!* (2-3pm)
 
 ### Week 4
 
