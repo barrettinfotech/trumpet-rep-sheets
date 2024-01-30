@@ -2,6 +2,12 @@
 
 # Spring 2024
 
+week 2
+
+Good work on learning some baroque stylistic ideas related to Torelli!
+
+
+
 ## Week 1
 
 Etudes: Bousquet--good for sight reading. Also do Charlier #1
@@ -9,10 +15,6 @@ Etudes: Bousquet--good for sight reading. Also do Charlier #1
 Solos, Torelli, Concerto in D; Mahler, Song of a Wayfarer; Pictures for tpt & piano or organ?
 
 Torelli: style--8th note pairs, second one softer. Stepwise motion smooth, but disjunct motion crisper. Keep in mind the hierarchy needs of the meter--think about agogic accents. When 16ths up down repeated figure--slur 2 by 2.&#x20;
-
-
-
-
 
 Week 13
 
