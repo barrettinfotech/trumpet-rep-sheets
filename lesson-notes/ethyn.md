@@ -4,7 +4,7 @@
 
 Record Hering 2;
 
-## Week 1
+### Week 1
 
 Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione, Hindemith, Sonata
 
