@@ -30,6 +30,7 @@ Things for audition success: petrouchka 100x, intr tt 100x, fix char 2
 Monday:
 
 * Worked on stamp and quiet daniels
+* ran all audition rep unsuccessfully. Quintet + WS = too much playing
 
 ### Week 4
 
