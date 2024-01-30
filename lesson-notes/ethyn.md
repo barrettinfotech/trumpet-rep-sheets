@@ -1,64 +1,64 @@
+## Lesson Notes
+
 # Spring 2024
-
-## Week 2
-
-Record Hering 2;
 
 ## Week 1
 
-Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione, Hindemith, Sonata
+Etudes: Characteristic #2, Charlier #2
 
-Etudes: Hering, Etudes in 24 keys
+Solos: Honegger, Haydn
 
-Excerpts: Copland, Outdoor Overture solo; Hansen, Valdres; Hindemith, Symphony in Bb (1st, 2nd mvt)
+Excerpts: Lincolnshire flugelhorn solo
 
-Sight read Hering 1. Next week Hering 2. Record for Canvas.
+## Special mid-week edition!
 
-## Lesson Notes
+4 basic ways of practicing:
 
-week 13
+1. repetition
+2. isolation
+3. use metronome to gradually increase tempo
+4. quality control ("can I play this passage X number of times in a row the way I want?")
 
-Ethyn super terrific job with the SmartMusic app helping you learn your Scarlatti Suite! A couple of things to remember:
+## week 12
 
-1\. make sure you're counting correcting. Less info can be helpful. don't wait too long after dotted quarter
+Great work on Haydn. Read your sticky notes. in general many notes too sharp and many ends of phrases and quarter notes are a bit too short. pace yourself to high Bb
 
-2\. when the arrangement calls for 4 notes to be slurred together, try to do that (instead of 2 by 2)
+#### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
 
-3\. trill should start on downbeat and starts on the note above the printed note.&#x20;
+Enzo, I am impressed with this new interface. Thanks for making this spiffy!
 
-4\. keep steady rhythm when piano drops out (2 before first ending)
+## week 7
 
-5\. good dynamic contrasts!
+Work on memorizing the Haydn. Things to look out for:
 
-6\. "Play-ing"
+1. keep pulse steady. Don't slow down toward end of phrase or gesture
+2. vibrato not too slow. Sometimes use the jello approach if music is a little marcato
+3. keep the 3-note motive strong throughout (don't lift too much on last note--however, don't play without some phrasing)
+4. perhaps keep legato when resolving a trill (don't tongue too harshly the resolution notes)
 
-## week 6
+we also talked about modernist, romantic and rhetorical philosophies of playing music. Try to successfully combine a rhetorical and modernist approach when playing Haydn on a modern trumpet.
 
-Ethyn, you're doing great. The place to work for the most growth is in rhythm and reading. Try to play duets and excerpts with as many fellow students as possible.
+## week 5
 
-## week 3
+Nice work on the Pines offstage. We worked on rhythmic stability using 8ths to be more faithful to the pulse. When breathing between the phrases, take an 8th off of previous note so that the next note comes in on time.
+Great work on the Haydn. We worked on phrasing details. 1st three notes are the main theme, so try not to lift too much on the E. Develop a beautiful bounce on 8th notes in this movement (imitate a violin playing a Mozart violin concerto). Trills should slow down at the end (and the resolution should be exactly in time). Same is true for phrases that end in 8ths--try not to slow down at the end right before the last note of the phrase.
 
-Clarke 1 sounding very good when you play with a relatively slow met speed (today it was at 100 for quarter). I like your controlled dynamic (soft).
-Work on Major scales and single tongue proficiencies.
-Bordogni 1--record. 2, work on singing then mouthpiece--use drone or recording as sound reference (or piano)
-Hansen--play along with recording at slower speed.
+### week 3
 
-### Ethyn, good job.
-
-Welcome to studio Ethyn! I'll add your lesson notes here throughout the semester.
-
-Work on Clarke 1st study--at least the first page (chromatic)
-
-Then work on all major scales. All two octaves.
-
-Work on Bordogni etude 1 (in D major)
+smooth out b min. keep soft most of the way through.
+Williams: make sure fingers are good. also keep softer and lighter for pacing.
 
 ## week 2
 
-Good job on Bordogni. Work on slur studies (Irons or Bai Lin). Try focusing on just 123, 12, 0 combinations if you want to go fast throught the study. Consider alternating playing on tpt and then on mouthpiece--integrate the two into a great slur
+Enzo, Honnegger--play more linear, not always too loud, and watch lengths of notes--especially at top of page 2. Next week play fast section--keeping in mind the 3/4 time feel underneath the 3 against2.
 
-Clarke 1--great job. Work with metronome for an incrementally faster (but still clean) ability
+Learn all fingerings for With Malice on Eb tpt.
 
-Bordogni 1 was great! Try Bordogni 2 (or you can pick out a different etude from your rep sheet.
+### August 22nd
 
-Start learning and listening to Hansen Sonata
+Enzo, learn how to triple tongue with the correct syllables.
+Also, start really working hard. On Charlier 2. On your Intrada, Haydn, and other audition rep.
+Work on Intrada for NTC.
+Work on NRO audition.
+
+Work on high range for the best results with Intrada. Also please learn to play soft.
