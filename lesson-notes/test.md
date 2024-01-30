@@ -18,10 +18,6 @@ asdf
 
 
 
-
-
-
-
 journal!
 
 woohoo
