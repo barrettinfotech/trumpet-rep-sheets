@@ -2,9 +2,7 @@
 
 ## Week 2
 
-Record Hering 2;&#x20;
-
-test
+Record Hering 2;
 
 ## Week 1
 
