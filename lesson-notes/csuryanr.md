@@ -1,7 +1,5 @@
 ## Lesson Notes
 
-
-
 # Spring 2024
 
 ## Week 1
@@ -11,10 +9,6 @@ Etudes, Berdiev 17 studies, #2, #3....etc.&#x20;
 Pick 2 solos (how about Elegy by Berdiev?)
 
 Excerpts ??
-
-
-
-
 
 ## week 5
 
