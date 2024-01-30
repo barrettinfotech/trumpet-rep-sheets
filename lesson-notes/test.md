@@ -1,9 +1,5 @@
 hi there
 
-
-
-
-
 asdf
 
 d
