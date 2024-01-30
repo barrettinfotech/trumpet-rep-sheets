@@ -4,8 +4,6 @@ hi there this is your awesome&#x20;
 
 
 
-d
-
 # big text
 
 asdf
