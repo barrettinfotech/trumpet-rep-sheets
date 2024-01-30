@@ -1,10 +1,6 @@
 hi there
 
-
-
 hi there this is your awesome&#x20;
-
-
 
 # big text
 
