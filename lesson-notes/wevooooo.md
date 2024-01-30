@@ -1,6 +1,8 @@
 # Spring 2024
 
+Week 2
 
+we dabbled in the warmup part of your proficiency
 
 ## Week 1
 
@@ -11,16 +13,6 @@ Brandt, Etude 1, 2, 3, 4 (record 1)
 Solos: Latham Suite; McKee Amazing Grace
 
 Excerpts: Copland, Rodeo, "Hoe Down," Ives, Variations on America; Persichetti, "Divertimento"&#x20;
-
-
-
-
-
-
-
-
-
-
 
 ## Lesson Notes
 
