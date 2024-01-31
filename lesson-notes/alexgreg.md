@@ -4,7 +4,7 @@
 
 week 2:&#x20;
 
-record Brandt 3, work on P
+record Brandt 3, work on Petr
 
 ## week 1
 
