@@ -2,6 +2,8 @@
 
 # spring 2024
 
+
+
 ## week 1
 
 Etudes: Brandt 3 and on. Snedecor
