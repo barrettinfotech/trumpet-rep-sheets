@@ -6,7 +6,7 @@ week 2:&#x20;
 
 record Brandt 3, work on Petrouchka,&#x20;
 
-Next week bring in maybe a S
+Next week bring in maybe a Snedec
 
 ## week 1
 
