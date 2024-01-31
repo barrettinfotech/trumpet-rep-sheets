@@ -10,10 +10,6 @@ Solos: Lavallee Meditation
 
 Excerpts: go to militarytrumpetjobs.com and find Copland Outdoor Overture
 
-
-
-
-
 ## week 6
 
 Riley--good work on your jazz concert. I thought your solo was great. Keep working on response and full, warm tone for all of your playing. This comes from working on basic things like free buzzing, mouthpiece buzzing, flow studies, long tones, lip bends, playing softly (like Clarke studies)
