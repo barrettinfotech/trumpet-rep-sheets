@@ -14,7 +14,9 @@ Record  Brandt 3. Slur arpeggiation to improve before adding back in tongue
 
 Solos: Arutunian, p. 1 for now.&#x20;
 
-Excerpts: Sousa, Golden Jubile
+Excerpts: Sousa, Golden Jubilee
+
+
 
 ## week 5
 
