@@ -4,7 +4,7 @@ Spring 2024
 
 week 2
 
-Bach/Gisondi #13. Worked o
+Bach/Gisondi #13. Worked on breathing&#x20;
 
 ## week 13
 
