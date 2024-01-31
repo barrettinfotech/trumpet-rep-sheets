@@ -2,7 +2,7 @@
 
 # spring 2024
 
-week 2&#x20;
+week 2:
 
 
 
