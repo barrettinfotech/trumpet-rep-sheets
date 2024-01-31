@@ -6,7 +6,7 @@
 
 week 2
 
-Ewazen III--y
+Ewazen III--yo
 
 
 
