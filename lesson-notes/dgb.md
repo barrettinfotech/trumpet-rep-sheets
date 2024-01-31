@@ -4,7 +4,7 @@ Spring 2024
 
 week 2
 
-Bach/Gisondi #13
+Bach/Gisondi #13.
 
 ## week 13
 
