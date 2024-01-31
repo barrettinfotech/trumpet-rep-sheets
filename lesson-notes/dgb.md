@@ -4,7 +4,7 @@ Spring 2024
 
 week 2
 
-Bach/G
+Bach/Giso
 
 ## week 13
 
