@@ -6,7 +6,7 @@ week 2
 
 Bach/Gisondi #13. Worked on breathing places that are not obtrusive. Excellent!!!
 
-Bach 10 preludes--use of agogic accen
+Bach 10 preludes--use of agogic accents and g
 
 
 
