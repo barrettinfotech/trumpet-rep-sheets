@@ -6,7 +6,7 @@
 
 week 2
 
-Ewazen III--you want to get more relaxed and fluid. m
+Ewazen III--you want to get more relaxed and fluid. mp pr
 
 
 
