@@ -4,10 +4,6 @@
 
 Charlier 3
 
-
-
-
-
 ## Week 1
 
 Etudes: Charlier 4, 5, 6, 14
