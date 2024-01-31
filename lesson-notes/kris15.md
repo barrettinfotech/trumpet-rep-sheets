@@ -6,6 +6,8 @@
 
 week 2
 
+E
+
 
 
 ## week 1
