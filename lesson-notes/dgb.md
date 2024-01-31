@@ -4,7 +4,7 @@ Spring 2024
 
 week 2
 
-Bach/Gisondi #13. Worked on breathing places that are not ob
+Bach/Gisondi #13. Worked on breathing places that are not obtrusive
 
 ## week 13
 
