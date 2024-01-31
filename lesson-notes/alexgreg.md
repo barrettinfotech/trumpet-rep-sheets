@@ -6,7 +6,7 @@ week 2:&#x20;
 
 record Brandt 3, work on Petrouchka,&#x20;
 
-N
+Next week&#x20;
 
 ## week 1
 
