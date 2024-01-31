@@ -6,7 +6,7 @@ week 2
 
 Bach/Gisondi #13. Worked on breathing places that are not obtrusive. Excellent!!!
 
-B
+Bach 10 p
 
 
 
