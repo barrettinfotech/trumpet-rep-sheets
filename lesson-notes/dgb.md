@@ -1,5 +1,7 @@
 ## Lesson Notes
 
+
+
 ## week 13
 
 Drew, good lesson checking proficiencies off. Please keep going with the various assignments in Canvas as you have time over the next little while. I'm not too worried about the Turrin--it'll be great. Work also on the correct transposition for Scheherazade orch part, and, work on a couple of new etudes from the Sachse Book for transposition (you have about 10 of these in your proficiency packet--they look kind of gray (we did a couple today, one in Bb and one in A).&#x20;
