@@ -6,7 +6,7 @@
 
 week 2
 
-Ewazen III--you want to get more relaxed and fluid. mp practice with YouTube recording was nice. Oral cavity consistent "shape" will help maintain consistent tone
+Ewazen III--you want to get more relaxed and fluid. mp practice with YouTube recording was nice. Oral cavity consistent "shape" will help maintain consistent tone.
 
 
 
