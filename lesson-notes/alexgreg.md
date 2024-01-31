@@ -4,7 +4,9 @@
 
 week 2:&#x20;
 
-record Brandt 3, work on Petrouchka (chunk work, try one breath)&#x20;
+record Brandt 3, work on Petrouchka (chunk work, try one breath)
+
+&#x20;
 
 Next week bring in maybe a Snedecor?&#x20;
 
