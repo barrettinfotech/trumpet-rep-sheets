@@ -6,7 +6,7 @@
 
 week 2
 
-Ewazen III--you want to get more relax
+Ewazen III--you want to get more relaxed an
 
 
 
