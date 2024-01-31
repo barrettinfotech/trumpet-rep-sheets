@@ -4,7 +4,7 @@
 
 week 2:&#x20;
 
-record B
+record Brandt 3
 
 ## week 1
 
