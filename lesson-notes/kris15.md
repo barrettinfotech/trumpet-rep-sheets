@@ -4,6 +4,10 @@
 
 
 
+
+
+
+
 ## week 1
 
 etudes: Charlier 3 and beyond; Brandt, 6 and beyond. Record #7 for Etude 1 assignment
