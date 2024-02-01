@@ -6,8 +6,6 @@ week 2
 
 Good work on learning some baroque stylistic ideas related to Torelli!
 
-
-
 ## Week 1
 
 Etudes: Bousquet--good for sight reading. Also do Charlier #1
