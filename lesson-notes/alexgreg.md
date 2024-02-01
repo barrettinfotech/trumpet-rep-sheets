@@ -20,12 +20,6 @@ Solos: Arutunian, p. 1 for now.&#x20;
 
 Excerpts: Sousa, Golden Jubilee, Petrouchka, Ballerina's Dance
 
-
-
-
-
-
-
 ## week 5
 
 Good job on scales and Clarke!
