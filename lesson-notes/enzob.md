@@ -1,39 +1,64 @@
-# **Spring 2024**
+## Lesson Notes
 
-## week 2
-
-Charlier 3
+# Spring 2024
 
 ## Week 1
 
-Etudes: Charlier 4, 5, 6, 14
+Etudes: Characteristic #2, Charlier #2
 
-Solos: Charlier 3; Hummel mvt. 1
+Solos: Honegger, Haydn
 
-Charlier 3--more front end on beginning of notes.&#x20;
+Excerpts: Lincolnshire flugelhorn solo
 
-## Lesson Notes
+## Special mid-week edition!
+
+4 basic ways of practicing:
+
+1. repetition
+2. isolation
+3. use metronome to gradually increase tempo
+4. quality control ("can I play this passage X number of times in a row the way I want?")
 
 ## week 12
 
-Good work on the Böhme, Dylan. We got through it. AND with metronome which is a great accomplishment. KEEP working on this. Try at least one hour a day (and two if you have time) in addition to all the other things you're doing on the trumpet.&#x20;
+Great work on Haydn. Read your sticky notes. in general many notes too sharp and many ends of phrases and quarter notes are a bit too short. pace yourself to high Bb
 
-## week 6
+#### the formatting worked—but bumped me to a different part of the page. but no problem.&#x20;
 
-Dylan, try to committ to your solo rep by this point in the semester. Work consistently on your chosen stuff. 3 hours of practice every day would be ideal--but make sure much of that is soft playing (like Clarke!).
+Enzo, I am impressed with this new interface. Thanks for making this spiffy!
+
+## week 7
+
+Work on memorizing the Haydn. Things to look out for:
+
+1. keep pulse steady. Don't slow down toward end of phrase or gesture
+2. vibrato not too slow. Sometimes use the jello approach if music is a little marcato
+3. keep the 3-note motive strong throughout (don't lift too much on last note--however, don't play without some phrasing)
+4. perhaps keep legato when resolving a trill (don't tongue too harshly the resolution notes)
+
+we also talked about modernist, romantic and rhetorical philosophies of playing music. Try to successfully combine a rhetorical and modernist approach when playing Haydn on a modern trumpet.
+
+## week 5
+
+Nice work on the Pines offstage. We worked on rhythmic stability using 8ths to be more faithful to the pulse. When breathing between the phrases, take an 8th off of previous note so that the next note comes in on time.
+Great work on the Haydn. We worked on phrasing details. 1st three notes are the main theme, so try not to lift too much on the E. Develop a beautiful bounce on 8th notes in this movement (imitate a violin playing a Mozart violin concerto). Trills should slow down at the end (and the resolution should be exactly in time). Same is true for phrases that end in 8ths--try not to slow down at the end right before the last note of the phrase.
 
 ### week 3
 
-warmup good--make sure you're doing good mouthpiece buzzing. Focus also on soft playing in general and on breath attacks.
-Gershwin not too loud. Keep tone going through slurs and vibrato not too slow.
+smooth out b min. keep soft most of the way through.
+Williams: make sure fingers are good. also keep softer and lighter for pacing.
 
 ## week 2
 
-working with met on Bach. Eighth at 68 is pretty good for now. Inch closer to goal tempos slowly.
-Start working on Allemande
-Petrouchka--1 breath
-pick out a different etude to play for your Canvas recording
+Enzo, Honnegger--play more linear, not always too loud, and watch lengths of notes--especially at top of page 2. Next week play fast section--keeping in mind the 3/4 time feel underneath the 3 against2.
 
-## week 1
+Learn all fingerings for With Malice on Eb tpt.
 
-Hi Dyan--working on Petrouchka. Commit to one breath. Bach Cello Suite. How about a standard etude?
+### August 22nd
+
+Enzo, learn how to triple tongue with the correct syllables.
+Also, start really working hard. On Charlier 2. On your Intrada, Haydn, and other audition rep.
+Work on Intrada for NTC.
+Work on NRO audition.
+
+Work on high range for the best results with Intrada. Also please learn to play soft.
