@@ -1,25 +1,36 @@
-# Dr. Curtis' feedback for Arjen
+## Lesson Notes
 
 # Spring 2024
 
-week 2
-
-Good work on learning some baroque stylistic ideas related to Torelli!
-
 ## Week 1
 
-Etudes: Bousquet--good for sight reading. Also do Charlier #1
+Etudes, Berdiev 17 studies, #2, #3....etc.&#x20;
 
-Solos, Torelli, Concerto in D; Mahler, Song of a Wayfarer; Pictures for tpt & piano or organ?
+Pick 2 solos (how about Elegy by Berdiev?)
 
-Torelli: style--8th note pairs, second one softer. Stepwise motion smooth, but disjunct motion crisper. Keep in mind the hierarchy needs of the meter--think about agogic accents. When 16ths up down repeated figure--slur 2 by 2.&#x20;
+Excerpts ??
 
-Week 13
+## week 5
 
-Brahm Academic better! Make smoother phrasing. Keep in tempo. Last notes of phrases not cut too short.&#x20;
+Ryan, all sounding good. Make sure you work on your jury piece. Are you going to commit to the Balay "Petite Piece Concertante?"
 
-Goedicke: cadenza--work to polish. 10 and 13 bigger and more organic in slow down. keep trills moving.&#x20;
+### week 3
 
-## Week 12&#x20;
+Peri--more tone on shorter notes. Find notes in the scale. Full value all the way to end of notes.
 
-Hi Arjen, great lesson. Please DO work hard on the NRO audition materials. We worked a bit on the Brahms Academic Festival Overture. Work for a smooth, non-vibrato way of playing. Dark tone. Good phrasing, consistent articulation for beginning of notes.&#x20;
+Concone in a minor, great job!!!!
+
+Look at Gatti etude in G major--not too short on short notes.
+
+Start looking at Balay, Petite Piece Concertante
+
+## week 2
+
+Clarke 5 with one breath every two lines. We played at 70 for the 8th note--incrementally work up from there.
+
+pick out etude from Gatti--E minor
+
+Welcome back to studio Ryan! I'll add your lesson notes here throughout the semester.
+
+Hi Ryan--lots of progress since last year! Try working on Clarke 5 with minimal or no embouchure re-sets.
+Work on Concone #2
