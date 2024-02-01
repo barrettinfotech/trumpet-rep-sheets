@@ -10,14 +10,6 @@ etude book: Snedecor, maybe starting on 5. record ASAP
 
 excerpts: Petroucka
 
-
-
-
-
-
-
-
-
 ### week 3
 
 Llewellyn, we worked hard on pitch stability in the trio with slow slurs and with mouthpiece. Tone is king here!!!
