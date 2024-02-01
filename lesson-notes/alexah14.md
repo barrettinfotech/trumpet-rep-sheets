@@ -1,35 +1,39 @@
+# **Spring 2024**
+
+## week 2
+
+Charlier 3
+
+## Week 1
+
+Etudes: Charlier 4, 5, 6, 14
+
+Solos: Charlier 3; Hummel mvt. 1
+
+Charlier 3--more front end on beginning of notes.&#x20;
+
 ## Lesson Notes
-
-# spring 2024
-
-## week 1
-
-etudes: Clarke Characteristics
-
-solos: Framed by McDowell, Reverie&#x20;
-
-excerpts: Petrouchka, Mahler 5, explore an underrepresented composer's trumpet excerpt&#x20;
 
 ## week 12
 
-Good job on your whirlwind proficiency adventure today, Alexa. Your range, tone, articulation and knowledge of scales are NOTABLY better these days!
+Good work on the Böhme, Dylan. We got through it. AND with metronome which is a great accomplishment. KEEP working on this. Try at least one hour a day (and two if you have time) in addition to all the other things you're doing on the trumpet.&#x20;
 
-Work on Bordogni Transposition etude #1, and pick out a new etude (are there any by female composers?)
+## week 6
 
-### Week 3
+Dylan, try to committ to your solo rep by this point in the semester. Work consistently on your chosen stuff. 3 hours of practice every day would be ideal--but make sure much of that is soft playing (like Clarke!).
 
-brainstorming for recital rep
+### week 3
 
-1. songs by F. Price or M. Bonds from the anthology--theme might be visual things represented in music
-2. A Crab,,
-3. Preussen, 2nd sonata (piccolo trumpet)
-4. Claude Arrieu, Reverie
-5. Cecelia McDowel, "Framed" stuff
+warmup good--make sure you're doing good mouthpiece buzzing. Focus also on soft playing in general and on breath attacks.
+Gershwin not too loud. Keep tone going through slurs and vibrato not too slow.
 
-Welcome back to studio Alexa! I'll add your lesson notes here throughout the semester.
+## week 2
 
-## week 2 (first week of lessons)
+working with met on Bach. Eighth at 68 is pretty good for now. Inch closer to goal tempos slowly.
+Start working on Allemande
+Petrouchka--1 breath
+pick out a different etude to play for your Canvas recording
 
-Send me sheet music (PDF) of the pieces you want to play for your recital.
+## week 1
 
-Work on Boehme #2 in a minor--pay attention to rhythmic subdivistions!!
+Hi Dyan--working on Petrouchka. Commit to one breath. Bach Cello Suite. How about a standard etude?
