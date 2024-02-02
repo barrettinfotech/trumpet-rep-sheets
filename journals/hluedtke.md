@@ -1,4 +1,4 @@
-## Welcome to your journal!
+## changesWelcome to your journal!
 
 |         | Mon.  | Tues. | Wed.  | Thurs. | Fri.  | Sat.  | Sun.  |
 | ------- | ----- | ----- | ----- | ------ | ----- | ----- | ----- |
@@ -45,7 +45,7 @@
 * Focusing on Scales this week&#x20;
   * Especially B major & C# major
 * Continued work on Girl from Ipanema
-  * solo section
+  * solo changes
 
 ### Week 4
 
