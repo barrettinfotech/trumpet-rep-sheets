@@ -44,7 +44,8 @@
 
 * Focusing on Scales this week&#x20;
   * Especially B major & C# major
-*
+* Continued work on Girl from Ipanema
+  * solo section
 
 ### Week 4
 
