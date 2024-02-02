@@ -42,6 +42,10 @@
 
 ### Week 3
 
+* Focusing on Scales this week&#x20;
+  * Especially B major & C# major
+*
+
 ### Week 4
 
 ### Week 5
