@@ -63,7 +63,19 @@ Sun. 2/4 -&#x20;
 
 ### Week 4
 
+Mon. 2.5 - *Studio!*
 
+<u>Arjen comments:</u>
+
+*
+
+<u>Hunter comments:</u>
+
+*
+
+<u>Bryce comments:</u>
+
+*
 
 ### Week 5
 
