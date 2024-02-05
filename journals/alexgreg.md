@@ -63,19 +63,13 @@ Sun. 2/4 -&#x20;
 
 ### Week 4
 
-Mon. 2.5 - *Studio!*
+Mon. 2.5 - *Studio @ 11am & rescheduled lesson @ 2pm!* catch 'em with comments B)
 
-<u>Arjen comments:</u>
+*<u>Lesson:</u>*
 
-*
-
-<u>Hunter comments:</u>
-
-*
-
-<u>Bryce comments:</u>
-
-*
+* <u>Etude:</u> Brandt 3 (done), Brandt 4 (new)
+* <u>Solos:</u> Arutunian (speed up 3let accel, 16th note consistency), Petroushka (up tempo :/)
+* <u>Proficiencies:</u> natural minor scales ("make 'em good")
 
 ### Week 5
 
