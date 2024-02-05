@@ -53,7 +53,17 @@ Wed. 1/31 - *Lesson!*
 * <u>Solos:</u>
   * Artunian! 1st page, accuracy
 
+Thu. 2/1 -&#x20;
+
+Fri. 2/2 -&#x20;
+
+Sat. 2/3 -&#x20;
+
+Sun. 2/4 -&#x20;
+
 ### Week 4
+
+
 
 ### Week 5
 
