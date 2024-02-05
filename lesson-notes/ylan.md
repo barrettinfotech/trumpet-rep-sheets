@@ -1,5 +1,17 @@
 # **Spring 2024**
 
+## week 3
+
+Charlier 3--tonguing patterns, not too much rest between some of the phrases. Quicker response on short notes.&#x20;
+
+Hummel: working at slow metronome tempo for details. In your practice start on 70 for quarter and move up incrementally. Think about grace notes--some before beat, others on beat and taking up a full 8th note.&#x20;
+
+
+
+Mahler 5: metronome around 60 bpm. compress the triplet pickups in the first measures. Keep crisp and with a crescendo
+
+
+
 ## week 2
 
 Charlier 3
