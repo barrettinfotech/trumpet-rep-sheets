@@ -1,5 +1,15 @@
 # **Spring 2024**
 
+## Week 5
+
+Charlier 3--consider a little faster for tempo, esp. the "Meno mosso".&#x20;
+
+Crisp double tongue.&#x20;
+
+tongue patterns in first section--make sure you know them!
+
+
+
 ## Week 1
 
 Etudes: Charlier 4, 5, 6, 14
@@ -7,8 +17,6 @@ Etudes: Charlier 4, 5, 6, 14
 Solos: Charlier 3; Hummel mvt. 1
 
 Charlier 3--more front end on beginning of notes.&#x20;
-
-
 
 ## Lesson Notes
 
