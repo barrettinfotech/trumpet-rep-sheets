@@ -8,7 +8,7 @@ Crisp double tongue.&#x20;
 
 tongue patterns in first section--make sure you know them!
 
-
+For the dotted rhythm on 2nd page
 
 ## Week 1
 
