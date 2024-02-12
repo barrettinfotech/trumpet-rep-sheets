@@ -8,11 +8,7 @@ etudes: Snedecor 4
 
 solos: Invocation, Timberline
 
-Excerpts:&#x20;
-
-
-
-
+Excerpts: Mahler 5. Work toward very even and single-tongue-sounding articulation for opening triplets. Compress these triplets (as in a 6/4 bar).&#x20;
 
 ### week 3
 
