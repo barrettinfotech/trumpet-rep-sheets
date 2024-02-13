@@ -6,7 +6,7 @@
 
 week 5
 
-Presser Suite:&#x20;
+Presser Suite: practice slower until confident. Mark rhythm changes (color code?).&#x20;
 
 ## Week 1
 
