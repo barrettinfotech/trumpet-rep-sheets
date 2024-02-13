@@ -8,6 +8,10 @@ Week 5
 
 Torelli: redefine hemiolas; consistent time (not late finishing trills); clarity.&#x20;
 
+Look up performance certificate details from other comparable schools of music
+
+Good work on Mahler 5. We talked about hierarchical dynamics. Tuning problems toward the end (play the concert Eb a little lower)
+
 
 
 ## Week 1
