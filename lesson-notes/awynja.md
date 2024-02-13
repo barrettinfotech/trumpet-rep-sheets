@@ -6,7 +6,7 @@
 
 Week 5
 
-Torelli:&#x20;
+Torelli: redefine hemiolas; consistent time (not late finishing trills); clarity.&#x20;
 
 
 
