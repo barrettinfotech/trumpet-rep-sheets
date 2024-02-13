@@ -6,7 +6,9 @@
 
 week 5
 
-Presser Suite: practice slower until confident. Mark rhythm changes (color code?).&#x20;
+Presser Suite: practice slower until confident. Mark rhythm changes (color code?). Worked in mvt 1. Next week, bring in movement 2 (or more).&#x20;
+
+Armenian Dances: try mouthpiece practice.&#x20;
 
 ## Week 1
 
