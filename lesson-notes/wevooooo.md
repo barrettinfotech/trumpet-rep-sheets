@@ -1,5 +1,11 @@
 # Spring 2024
 
+Week 5
+
+talked about mutes--play louder and more in the center.
+
+
+
 
 
 ## Week 1
@@ -11,16 +17,6 @@ Brandt, Etude 1, 2, 3, 4 (record 1)
 Solos: Latham Suite; McKee Amazing Grace
 
 Excerpts: Copland, Rodeo, "Hoe Down," Ives, Variations on America; Persichetti, "Divertimento"&#x20;
-
-
-
-
-
-
-
-
-
-
 
 ## Lesson Notes
 
