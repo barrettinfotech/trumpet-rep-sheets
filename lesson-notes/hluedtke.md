@@ -2,6 +2,16 @@
 
 # Spring 2024
 
+week 6
+
+we worked on scale proficiencies for the UDQE. Play them everyday to be really ready!
+
+Tone and stability on tpt is really improving--good work on this!
+
+We worked on and passed the single tongue proficiencies!&#x20;
+
+
+
 ### week 5
 
 etudes: Snedecor 4
