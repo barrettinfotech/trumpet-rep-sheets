@@ -10,7 +10,7 @@ Tone and stability on tpt is really improving--good work on this!
 
 We worked on and passed the single tongue proficiencies!&#x20;
 
-
+Mahler 5 sounded great! Keep working on Timberline!
 
 ### week 5
 
