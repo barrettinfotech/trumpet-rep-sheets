@@ -2,6 +2,14 @@
 
 # Spring 2024
 
+week6
+
+Mahler--maybe a bit longer on some notes, because tpt can't do some consonants in the way vocalists do--so we need to play in general more connectedly.&#x20;
+
+Taps--great!
+
+Torelli--connecting between slurred pairs of 16ths.
+
 
 
 Week 5
@@ -11,8 +19,6 @@ Torelli: redefine hemiolas; consistent time (not late finishing trills); clarity
 Look up performance certificate details from other comparable schools of music
 
 Good work on Mahler 5. We talked about hierarchical dynamics. Tuning problems toward the end (play the concert Eb a little lower)
-
-
 
 ## Week 1
 
