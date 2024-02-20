@@ -1,5 +1,15 @@
 # Spring 2024
 
+week 5
+
+Journal--log + review + aspirations
+
+Add two etudes to #12 in the Bach/Gisondi book to make a multi-movement type of jury presentation
+
+Make sure you are putting many rests into your practice sessions in order to stay fresh and maintain optimal form.&#x20;
+
+
+
 ## Week 1
 
 good start to your journal~
