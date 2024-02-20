@@ -1,12 +1,14 @@
 # Spring 2024
 
+Week 6
+
+good work on Latham Suite--practice gradually for more speed in 3rd movement! Really connect slurs in 2nd mvt!
+
+
+
 Week 5
 
 talked about mutes--play louder and more in the center.
-
-
-
-
 
 ## Week 1
 
