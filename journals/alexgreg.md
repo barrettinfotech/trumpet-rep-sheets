@@ -16,7 +16,7 @@ Sat. 1/20 - MSOE, then BK Camp (shoutout Olivia <3). No individual practice :(
 
 Sun. 1/21 - Pretty heavy playing at camp. Mom @ show & tell! Corps hall and noodles w/ Rose
 
-Mon. 1/22 - I don't remember if I warmed up before 10am wood tech, but played duets w/ Ethyn after studio. Practice after ART100. I RSVP'd but I literally cannot go to the KKPSI stuff. Late night practice after bestie hangout to one-up Jordan in the BK slack.
+Mon. 1/22 - *1st studio meeting of 2024!* I don't remember if I warmed up before 10am wood tech, but played duets w/ Ethyn after studio. Practice after ART100. I RSVP'd but I literally cannot go to the KKPSI stuff. Late night practice after bestie hangout to one-up Jordan in the BK slack.
 
 Tue. 1/23 - can't remember my warmup, idk if I even got one. x2 ensembles, ditch KKPSI (just kidding send Lucy a very amicable text), goodnight.
 
@@ -32,13 +32,67 @@ Sun. 1/28 - Met Arjen to lesson plan for MSOE Night 1 (due 1/31) @ 11am. Kaeden'
 
 ### Week 3
 
-1/29 - *1st performance for studio of 2024!*&#x20;
+Mon. 1/29 - *1st performance for studio of 2024!* & 1st Jazz lesson!
+
+Tue. 1/30 -&#x20;
+
+Wed. 1/31 - *Lesson #2 of 2024!* Try to pass off Clarke studies w/ Will and fail oops
+
+Thu. 2/1 -&#x20;
+
+Fri. 2/2 - *1st Jazz studio meeting of 2024!*&#x20;
+
+Sat. 2/3 -&#x20;
+
+Sun. 2/4 - Record Brandt 3!
 
 ### Week 4
 
+Mon. 2/5 - Studio #3
+
+Tue. 2/6 -&#x20;
+
+Wed. 2/7 - *Lesson #3 of 2024!* Baroque ensemble & practice? *MSOE Night 1*
+
+Thu. 2/8 -&#x20;
+
+Fri. 2/9 - Jazz studio, rescheduled meeting with Will.
+
+Sat. 2/10 - CoM Audition Day :/
+
+Sun. 2/11 - Practice like 2hr with Ethyn lol (Petroushka & Arutunian)
+
 ### Week 5
 
+Mon. 2/12 - *Jazz lesson #2* <- Write out Hopscotch solo section!
+
+Tue. 2/13 -&#x20;
+
+Wed. 2/14 - *Lesson #4*
+
+Thu. 2/15 -&#x20;
+
+Fri. 2/16 - *11am warmup in 204*, passed off double tonguing yay. Trumpet Day meeting, 1:45pm
+
+Sat. 2/17 - CoM Audition Day again :/
+
+Sun. 2/18 -&#x20;
+
 ### Week 6
+
+Mon. 2/19 -&#x20;
+
+Tue. 2/20 - Jazz II (chart Hopscotch solo, back exploded)
+
+Wed. 2/21 - *Lesson #5* (Arutunian check-in, Brandt 4, etc)
+
+Thu. 2/22 -&#x20;
+
+Fri. 2/23 - Leave for Feb. camp!
+
+Sat. 2/24 - Blue Knights Feb. Camp
+
+Sun. 2/25 - Get back from Feb Camp! -> *Baroque Trumpet Ensemble Recording session*, 6-7:30pm!
 
 ### Week 7
 
