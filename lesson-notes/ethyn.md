@@ -1,5 +1,9 @@
 # Spring 2024
 
+week 6
+
+working on rhythm with met and foot-tapping on Arutunian (D to F). Working in memory of chunks.&#x20;
+
 ## Week 1
 
 Solos: Goedicke Concert Study; Balay Prelude et Ballade; Handel/Fitzgerald, Aria con variazione, Hindemith, Sonata
@@ -9,10 +13,6 @@ Etudes: Hering, Etudes in 24 keys
 Excerpts: Copland, Outdoor Overture solo; Hansen, Valdres; Hindemith, Symphony in Bb (1st, 2nd mvt)
 
 Sight read Hering 1. Next week Hering 2. Record for Canvas.
-
-
-
-
 
 ## Lesson Notes
 
