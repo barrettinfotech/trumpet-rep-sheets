@@ -1,4 +1,11 @@
-## Welcome to your journal!
+##
+
+| Week | Mon.  | Tues.  | Wed.  | Thurs.  | Fri. | Sat. | Sun. |
+| ---- | ----- | ------ | ----- | ------- | ---- | ---- | ---- |
+
+
+Welcome to your journal!
+------------------------
 
 ### Week 1
 
