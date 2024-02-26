@@ -2,6 +2,14 @@
 
 # Spring 2024
 
+week 7
+
+good work on practice hours--we'll try to recover your table journal by working with Enzo.
+
+
+
+
+
 week 6
 
 we worked on scale proficiencies for the UDQE. Play them everyday to be really ready!
