@@ -2,6 +2,12 @@
 
 # Spring 2024
 
+week 7
+
+Arjen, I liked your playing when you spent time buzzing the mouthpiece with a reliable pitch reference! This helped the low pitches in the Mahler, but also helped some of the arpeggiation in the Torelli!
+
+
+
 week6
 
 Mahler--maybe a bit longer on some notes, because tpt can't do some consonants in the way vocalists do--so we need to play in general more connectedly.&#x20;
@@ -9,8 +15,6 @@ Mahler--maybe a bit longer on some notes, because tpt can't do some consonants i
 Taps--great!
 
 Torelli--connecting between slurred pairs of 16ths.
-
-
 
 Week 5
 
