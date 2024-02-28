@@ -96,6 +96,16 @@ Sun. 2/25 - Get back from Feb Camp! -> *Baroque Trumpet Ensemble Recording sessi
 
 ### Week 7
 
+Mon. 2/26 - *Jazz lesson w/ Prof. Mervine!* Write out Hopscotch! *TrumpetTent rehearsal @ 4*. Symphonic Band dress rehearsal 7-9.
+
+Tue. 2/27 - Write out Hoscotch before jazz kind of?&#x20;
+
+Wed. 2/28 -&#x20;
+
+Thu. 2/29 -&#x20;
+
+Fri. 3/1 -&#x20;
+
 ### Week 8
 
 ### Week 9
