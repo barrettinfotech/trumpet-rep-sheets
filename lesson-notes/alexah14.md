@@ -2,6 +2,16 @@
 
 # spring 2024
 
+week 7
+
+worked on Belk Modern Flexibilities from your proficiency packet (packet 8). All the proficiencies are hard at this level, so please put time in to pass them.&#x20;
+
+
+
+work on melodic and harmonic scales for the Proficiencies for your degree. (also work on proficiencies from the packet)
+
+
+
 ## week 1
 
 etudes: Clarke Characteristics
