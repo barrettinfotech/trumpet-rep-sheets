@@ -1,5 +1,13 @@
 # Spring 2024
 
+week 9
+
+Great work on rhythm and faster speed on the Goedicke, Ethyn!
+
+Work on Hering #4 for recording. Also work on Balay Prelude et Ballade.&#x20;
+
+What about scale and single tongue proficiencies. And&#x20;
+
 week 6
 
 working on rhythm with met and foot-tapping on Arutunian (D to F). Working in memory of chunks.&#x20;
