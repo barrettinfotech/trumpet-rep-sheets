@@ -2,6 +2,12 @@
 
 # spring 2024
 
+week 9
+
+more refined articulation in Hansen. explore palatte of articulation with minutes drills. make difference between triplets and dotted rhythms. prep for accents or other phrase goals.
+
+try to figure out more of a regular practice schedule so you feel ready to play when you have rehearsals and other important events.
+
 ## week 1
 
 Etudes--Berdiev. Record #2
@@ -9,10 +15,6 @@ Etudes--Berdiev. Record #2
 Solos: Lavallee Meditation
 
 Excerpts: go to militarytrumpetjobs.com and find Copland Outdoor Overture
-
-
-
-
 
 ## week 6
 
