@@ -1,5 +1,9 @@
 # Spring 2024
 
+week 9
+
+work on slurs; think about the "sound envelope" (you can have a sparkly beginning and still have a connected end to a note). We looked at Kennan sonata. Bach unaccompanied pieces. Start working on Petrouchka.
+
 week 5
 
 Journal--log + review + aspirations
@@ -7,8 +11,6 @@ Journal--log + review + aspirations
 Add two etudes to #12 in the Bach/Gisondi book to make a multi-movement type of jury presentation
 
 Make sure you are putting many rests into your practice sessions in order to stay fresh and maintain optimal form.&#x20;
-
-
 
 ## Week 1
 
