@@ -26,7 +26,6 @@ I wish I had made more time to practice, but to be honest I kinda hit my highest
 
 I hope to get a bit more practice in but next week is another heavy workload week. I want to focus on articulation in my recital pieces and see if I can get a more stable quiet dynamic tone on the horn. It has felt unstable as of late. 
 
-
 Based on the recording we took of me playing, I need to be more consistent and confident in myself and my sound. It’s there.. I just need to really focus in.&#x20;
 
 ### Week 7
@@ -37,9 +36,9 @@ I think we’re in week 8. In keeping myself accountable I plan to try and use t
 
 Final Rep List for Recital:
 
-Framed: Ball at the Moulin De Gallette - Cecilia McDowell
+Framed: Ball at the Moulin De Gallette - Cecilia McDowell (jury)
 
-Framed: Nocturne in Blue and Gold - Cecilia McDowell
+Framed: Nocturne in Blue and Gold - Cecilia McDowell (jury)
 
 WoC: A Crab, A Quill - Gala Flagello
 
