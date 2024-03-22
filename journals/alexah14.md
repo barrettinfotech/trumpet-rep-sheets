@@ -48,6 +48,9 @@ Hush! - Amy Dunker
 
 Duet piece with Brenna
 
+
+3/21/24 Today I practiced for 2 hours and then also had jazz band. During my practice session, I practiced the Clarke Characteristic Study 1, focusing on articulation and stamina. I also ran through the first part of A Crab A Quill, going back to spots I flubbed. I took an extended break and then came back to finish out the sesh with some flexibility exercises in the packet.&#x20;
+
 ### Week 9
 
 ### Week 10
