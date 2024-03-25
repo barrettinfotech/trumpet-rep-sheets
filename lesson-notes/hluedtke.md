@@ -2,13 +2,15 @@
 
 # Spring 2024
 
+week 10
+
+work on all major and minor scales frequently (like every day). We passed off the harmonic minor today, but it could be a lot more internalized.
+
+
+
 week 7
 
 good work on practice hours--we'll try to recover your table journal by working with Enzo.
-
-
-
-
 
 week 6
 
