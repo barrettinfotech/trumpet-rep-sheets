@@ -1,6 +1,20 @@
 # **Spring 2024**
 
-## Week 5
+**week 10**
+
+**do/record Proficiency scales--major/nat minor/chromatic**
+
+**try doing all even rhythms in scales (as opposed to long, short, short, short...)**
+
+Majors to work on: B, Db, E
+
+**Nat minors to work on: Ab, E, Eb, Db**
+
+**Charlier 3.**
+
+**Hummel. "tu tu" for dotted rhythm at beginning. trills start on written note (or upper note). except trill at end of exposition should start on upper note.**
+
+### Week 5
 
 Charlier 3--consider a little faster for tempo, esp. the "Meno mosso".&#x20;
 
