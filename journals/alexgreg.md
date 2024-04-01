@@ -176,7 +176,12 @@ Sun. 3/31 -&#x20;
 
 ### Week 12
 
-Mon. 4/1 -&#x20;
+Mon. 4/1 -
+
+* 8am TrumpetTent
+* 9am warmup \*passed off 3x tonguing!\*
+* 11am studio - Perform!
+  * Critique weblink >:)
 
 Tue. 4/2 -&#x20;
 
